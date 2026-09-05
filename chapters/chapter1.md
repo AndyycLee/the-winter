@@ -22,7 +22,7 @@ So the dream snaps, as it always does, abandoning me to the sudden, heavy quiet 
 
 ◇
 
-Aside from that, I don’t really have anything you could call routine. Ours was a strange family. We immigrated from Korea but my dad moved back when I turned 15. Rather than uprooting me for my final years of school, he left me the shoebox walk-up apartment, set up an allowance, and told me to be smart. My mom also lives in Korea, but I don’t have any idea what she’s doing. She was a model and they separated when I was young, and truthfully I don’t care about making any new mother-son memories (or father-son for that matter). It puzzled me why people like this have children, it seemed like I was a stand-in (or accident I suppose) in the natural progression of their goals. But once it happened, they both forgot. If there’s one blessing about this it seemed like we weren’t hurting for money. I’ve lived alone ever since.
+Aside from that, I don’t really have anything you could call routine. Ours was a strange family. We immigrated from Korea but my dad moved back when I turned 15. Rather than uprooting me for my final years of school, he left me the shoebox walk-up apartment, set up an allowance, and told me to be smart. My mom also lives in Korea, but I don’t have any idea what she’s doing. She was a model; they separated when I was young, and truthfully I don’t care about making any new mother-son memories (or father-son for that matter). It puzzled me why people like this have children, it seemed like I was a stand-in (or accident I suppose) in the natural progression of their goals. But once it happened, they both forgot. If there’s one blessing about this it seemed like we weren’t hurting for money. I’ve lived alone ever since.
 
 It was around this time, while trying to fill my empty days with a new routine that I developed a new hobby. I like to stare from high places. Well that’s a half-truth.
 
@@ -35,6 +35,7 @@ It was a quiet spot I frequented often. In winter, the frozen lake, the crunchy 
 It was also the place I first met her.
 
 ◇
+
 Soon enough the snow melted, and school was out for the summer. I spent most of my days wandering aimlessly, and sometimes I would find myself back at the bridge. The air was warmer now, and thick with humidity. The smell of wet earth and blooming flowers filled my senses, and I felt a strange sense of peace in the changing seasons.
 
 I also picked up a part-time cashiering job just for some extra income, though it was more apt to say that it fell onto me.

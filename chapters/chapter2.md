@@ -102,7 +102,7 @@ Like I'd shown up to a conversation that had started without me and would keep g
 
 So I got used to being on my own. Just because, somewhere along the way, you make do with the silence. And after, I never learned what else was supposed to go in its place.
 
-## ◇
+◇
 
 I jolted awake already moving.
 
