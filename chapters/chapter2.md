@@ -1,6 +1,4 @@
-\## Chapter 2\\. November
-
-There was another fascinating thing that happened that year.
+There was a surprising thing that happened that year.
 
 November had completed its slow, quiet violence. The last stubborn leaves on the riverbank had given up their hold, leaving the trees naked, their branches reaching into the low, purple-bruised sky like exposed veins.
 
@@ -70,7 +68,7 @@ The cigarette was unlit, held between two knuckles like a charm. Her hair fell l
 
 "What were you doing?" she asked, her voice small and somehow distant.
 
-> \*I think behind me, the bridge creaked. The bus's smooth hum braided with the river's murmur, and the howling wind bent into a note I knew.\*
+\*I think behind me, the bridge creaked. The bus's smooth hum braided with the river's murmur, and the howling wind bent into a note I knew.\*
 
 I didn't flinch. For some reason, that cosmic plea gave me a strange courage. "...Staring". "I was staring at the water."
 
@@ -82,7 +80,9 @@ I knew my quiet sanctuary had been found, but maybe in my fear-dream addled brai
 
 Sitting there on the edge of the dark, listening to the muffled rhythm of a stranger's song in the falling snow, the silence didn't feel like an empty void anymore.
 
-In that 16th winter of my life, it just felt like the beginning. The whiteout snow swarmed my vision.
+In that 16th winter of my life, it just felt like the beginning.
+
+The whiteout snow swarmed my vision.
 
 ◇
 
@@ -104,13 +104,11 @@ So I got used to being on my own. Just because, somewhere along the way, you mak
 
 ◇
 
-I jolted awake already moving.
-
-Not the soft click into consciousness of an alarm, but the lurch of a body catching itself mid-fall, hands gripping something that wasn't a railing — a seatback, rough fabric, the specific nap of it dragging under my palms. My heart was going before my eyes had even opened all the way.
+When I opened my eyes I was already moving.
 
 The bus.
 
-I knew this route by now. Twenty times, easily, maybe more — I'd stopped counting somewhere in September. My eyes felt heavy, sleep still clinging to the edges, and I let them fall shut again, trusting my body to carry the rest.
+I knew this route by now. Twenty times, easily, maybe more. I'd stopped counting somewhere in September. My eyes felt heavy, sleep still clinging to the edges, and I let them fall shut again, trusting my body to carry the rest.
 
 The first turn came, winding and downward, into the valley. My stomach dipped a half-second before it did.
 
@@ -120,7 +118,7 @@ Somewhere in there the road turned uneven for a stretch, gravel under the tires,
 
 When I opened my eyes the courtyard was already sliding into view — the low brick wall out front, the flagpole with its rope clinking softly against the metal, kids in uniform clustering in twos and threes, breath fogging in the cold. The bus eased into its usual stop along the curb, brakes sighing long and tired.
 
-The small, familiar lift rose in my chest anyway, that stupid, threadbare hope, the one that started the second before the doors opened, the one that existed only for the short call.
+The small, familiar lift rose in my chest anyway, that stupid, threadbare hope, the one that started the second before the doors opened, the one that existed only for her short call.
 
 The doors opened.
 
@@ -134,53 +132,51 @@ My heart sank.
 
 I laughed inside, quiet and humorless. It seemed even my own dreams didn't want to entertain my delusions anymore. Couldn't even give me that much.
 
-"You getting off?"
+"You getting off?" His sarcastic voice interrupted my thoughts.
 
 The bus driver was watching me in the big mirror above his seat, one eyebrow raised, the door still hanging open as a small queue of kids streamed out.
 
-That was when I realized how long I'd been sitting there.
-
 I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. That told me nothing. Dreams had hurt before, I just had one that had me up at 4:57 that morning...
 
-I scuffled my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap, sobering wind that cooled my shaken mind.
+I scuffled my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap, a sobering wind that cooled my shaken mind.
 
-I remembered my wet skin, the tangled sheets, the clock reading some ungodly hour, the raging snow, and sitting next to her...
+I remembered the tangled sheets, the clock reading some ungodly hour, gripping a frozen railing, the raging snow, and sitting next to her...
 
-But if I'd dreamed her — when had I stopped dreaming and woken up onto an actual bus? I didn't remember getting up, getting dressed, walking to the stop. There was no seam I could find, no place where one thing ended and the other began.
+But if I'd seen her — when had I stopped dreaming and woken up onto an actual bus? I didn't remember getting up, getting dressed, walking to the stop. There was no seam I could find, no place where one thing ended and the other began.
 
-I had half a mind to ask the bus driver if I was dreaming, but I didn't. That seemed a bit too ridiculous. Yeesh, did I even have a life of my own?
+I had half a mind to ask the bus driver if I was dreaming, but I didn't. That seemed a bit too ridiculous. Geez, did I even have a life of my own?
 
 ◇
 
-Almost as an answer to my own question, first period that day had an interesting surprise.
+Almost as an answer to my own question, first period that day had a second surprise.
 
 "Today we'll be doing something a bit different", Mr.Harrison's voice was calm, but it carried a boom that made the room quiet. "We'll be looking at a poem, I want you to write what it makes you feel, and you'll turn that in at the end of class. I want you to be honest. Don't worry about what anyone else thinks, just write what comes to mind."
 
 On the chalkboard he scrawled the title of the poem in his neat, looping handwriting: "Masks".
 
-*She had blue skin,
+_She had blue skin,_
 
-And so did he.
+_And so did he._
 
-He kept it hid
+_He kept it hid_
 
-And so did she.
+_And so did she._
 
-They searched for blue
+_They searched for blue_
 
-Their whole life through,
+_Their whole life through,_
 
-Then passed right by--
+_Then passed right by--_
 
-And never knew.*
+_And never knew._
 
 I read it twice before the words actually landed.
 
-*They searched for blue their whole life through, then passed right by, and never knew.*
+_They searched for blue their whole life through, then passed right by, and never knew._
 
 I don't know how long I sat there. Around me, pencils had already started their scratch, that steady, papery hum of thirty-one other people turning a feeling into a grade. I looked down at my own blank page. White, empty, waiting.
 
-It felt less like a poem and more like something had reached into my chest, read a private file it had no business reading, and typed it back up on a chalkboard.
+It felt less like a poem and more like something had reached into my chest, read a private file, and typed it back up on a chalkboard.
 
 For someone who drifted through most of his classes without absorbing a single word, it was a strange thing to feel. The blank page stared back at me, and for once, I wanted so badly to have something to put on it. Not for a grade. I just wanted, with an intensity that embarrassed me a little, to say something true and have it exist somewhere outside my own head.
 
@@ -188,7 +184,7 @@ I don't think I'd ever wanted to write anything more in my life. That should hav
 
 I thought about the bus. The seat that shouldn't have been familiar. The turns I knew before I felt them. A voice that hadn't come. I thought about the cold water and the color that ate the world, and a hand I'd never once actually held while awake.
 
-*They searched for blue their whole life through.*
+_They searched for blue their whole life through._
 
 Something ugly and immediate rose up in me, and before I'd decided to, I was writing.
 
@@ -198,7 +194,7 @@ My pencil tip snapped clean off on the last line. I didn't notice until I went t
 
 I sat there breathing a little too hard, staring at a paragraph I hadn't meant to write, in a classroom that suddenly felt too bright, too normal, entirely unaware of what had just happened three feet above the linoleum.
 
-I folded the paper in half before Mr. Harrison could collect it and see whatever expression was on my face.
+There was a tinge of embarrassment in me, but it was a quiet thing. A thought crossed my mind that perhaps I was losing my grip on the world entirely, spinning a fragile delusion out of lonely desperation. Yet, even if this sequence right now was a dream, there was a strange, poetic comfort in choosing to commit a completely meaningless act on purpose.
 
 The bell rang not long after. Chairs scraped, voices rose back to their normal volume, and the room exhaled the particular tension a poem like that leaves behind once everyone's allowed to stop pretending they felt something.
 
@@ -214,4 +210,4 @@ I still couldn't tell, sitting there, whether I was awake. It didn't feel like i
 
 She walked through the door.
 
-The winter magic must still be in effect.
+The winter dream must still be in effect.
