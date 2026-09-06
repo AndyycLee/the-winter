@@ -2,7 +2,7 @@ I have a recurring dream.
 
 Though for reasons I’ve begun to resent it lately. I’ve never been one to put an importance on dreams — they’re usually just random noise, forgotten the second your eyes open. But lately, every time I close my eyes, I find myself back on that crowded bus.
 
-The air inside is always heavy, thick with a strange, suffocating familiarity. It’s packed with people, but I can never see their faces. As if the sequence surfacing in my mind is meant for someone else, but once it starts, I just want to let it carry me away.
+The air inside is always dense, hazy with a familiarity that feels suffocating. It’s packed with people, but I can never see their faces. As if the sequence surfacing in my mind is meant for someone else, but once it starts, I just want to let it carry me away.
 
 *The bus travels with a quiet, frictionless smoothness, and I’m seated towards the back on a rough-looking seat. We jet past scenic waterfalls and cut through a tree-filled neighborhood. Every detail is unfamiliar, yet I catch myself recognizing a path from a childhood I know I never had.*
 
