@@ -40,7 +40,7 @@ Then didn't. The hood was bangs. The snow was only light, morning light, ordinar
 
 She smiled. Small, a little uncertain, like she wasn't sure she had permission to take up the room she was standing in. But it was her eyes that stopped me. Wide, upturned, peeking out from under her bangs, they were a shade of aquamarine that looked lit from within. There was a pure, curious charm to them, the kind that made you want to follow the light back to its source. Yet they gave nothing away. Paired with her shyness, it made her magnetic.
 
-It certainly resembled her. The one from the winter, but was my memory overlapping itself again? She seemed like an entirely different person.
+I couldn't trust if my memories were overlapping, but my second take was winning. She seemed like an entirely different person.
 
 And also — I'd seen her before. Years ago. Back when I couldn't speak English and spent recess in the library instead of outside, we'd shared class too. She was always quiet but bright, always surrounded by friends and laughter.
 
