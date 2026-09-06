@@ -138,11 +138,13 @@ She wasn't calling out.
 
 My heart sank.
 
-I laughed inside, quiet and humorless. It seemed even my own dreams didn't want to entertain my delusions anymore. Couldn't even give me that much.
+I laughed inside, quiet and humorless.  Even my own subconscious was getting lazy.
 
 "You getting off?" His sarcastic voice interrupted my thoughts.
 
 The bus driver was watching me in the big mirror above his seat, one eyebrow raised, the door still hanging open as a small queue of kids streamed out.
+
+I looked down at myself. My house jacket, hanging open over the shirt I'd slept in, the collar still damp.
 
 I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. That told me nothing. Dreams had hurt before, I just had one that had me up at 4:57 that morning...
 
@@ -150,7 +152,7 @@ I scuffled my shoes up quickly, and stepped off the bus, letting the doors close
 
 I remembered the tangled sheets, the clock reading some ungodly hour, gripping a frozen railing, the raging snow, and sitting next to her...
 
-But if I'd seen her — when had I stopped dreaming and woken up onto an actual bus? I didn't remember getting up, getting dressed, walking to the stop. There was no seam I could find, no place where one thing ended and the other began.
+Six words. That was all of it. I'd sat down and let her put the earbud back in, and I hadn't asked her name, or what she was doing out there at that hour, or whether she'd be there tomorrow. 5 inches of space between us and I let it be.
 
 I had half a mind to ask the bus driver if I was dreaming, but I didn't. That seemed a bit too ridiculous. Geez, did I even have a life of my own?
 
