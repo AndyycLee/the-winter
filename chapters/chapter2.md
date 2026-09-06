@@ -1,6 +1,6 @@
 There was a surprising thing that happened that year.
 
-November had completed its slow, quiet violence. The last stubborn leaves on the riverbank had given up their hold, leaving the trees naked, their branches reaching into the low, purple-bruised sky like exposed veins.
+November had completed its slow, quiet violence. The last stubborn leaves on the banks had given up their hold, leaving the trees naked, their branches reaching into the low, dark purple-bruised sky like exposed veins.
 
 Like usual I found my way to the bench. The wood dark and slick, and my jeans soaked through almost immediately, but I didn't move.
 
@@ -8,13 +8,13 @@ The wood tilted slightly. Or my attention shifted. I wasn't sure which, and I le
 
 Maybe it was because I was dwelling on philosophy for so long that another idea came to me. In the language I left behind, there is a word for the threads that pull people together across time and space: In-yeon.
 
-Providence. Fate. It was a romantic notion, the kind of comfortable superstition designed to make lovers feel re-assured in their choices (I'm sure my dad won over my mom with this).
+Destiny. Fate. It was a romantic notion, the kind of comfortable superstition designed to make lovers feel re-assured in their choices (I'm sure my dad won over my mom with this).
 
-Still, the condition wasn't limited to lovers. It was a way of making a overwhelmingly vast universe feel smaller, deliberate. They say that two strangers whose clothes brush against each other on a crowded street corner must have shared thousands of layers of in-yeon in their past lives.
+Still, the condition wasn't limited to lovers. It was a way of making an overwhelmingly vast universe feel smaller, deliberate. They say that two strangers whose clothes brush against each other on a crowded street corner must have shared thousands of layers of in-yeon in their past lives.
 
-More than that, they say to actually find this person, you have to keep your eye on the invisible thread, to take each moment with intentionality. So when the universe finally up the right door, you step through it with courage. And if you don't, if you let the moment pass, then the thread will snap, and you'll miss the moment of meeting them in this lifetime.
+More than that, they say to actually find this person, you have to keep your eye on the invisible thread, to take each moment with intentionality. So when the universe finally opens the right door, you step through it with courage. And if you don't, if you let the moment pass, then the thread will snap, and you'll miss the moment of meeting them in this lifetime.
 
-I'll admit it. I'm reliant on other people who I deem "strangers". But still, the concept felt like an elaborate joke.
+I'll admit it. I'm reliant on other people I deem "strangers". But still, the concept felt like an elaborate joke.
 
 If it took eight thousand lives of shared history just to bump shoulders with a passerby, then how many cosmic failures did it take to end up like this? How many lifetimes had I spent turning away, burning bridges, or simply failing to exist, to end up in a place where every thread had snapped?
 
@@ -40,7 +40,7 @@ The apartment. My bed. 4:57 AM according to the clock on the wall.
 
 A dream.
 
-I was still shaking. But more than anything I felt humiliated. I thought I understood myself, but this was proof. \*Zero\* wasn’t enough. I pushed the sheets away and sat up, feeling the cold air hit my skin and stick there, uncomfortable.
+I was still shaking. But more than anything I felt humiliated. I thought I‘d understood myself, but this was proof. \*Zero\* wasn’t enough. I pushed the sheets away and sat up, feeling the cold air hit my skin and stick there, uncomfortable.
 
 I couldn't go back to sleep. My skin was slick and I felt a wetness in my eyes I knew wasn't sweat. I pulled on my jacket - I needed to verify my philosophy.
 
@@ -66,17 +66,23 @@ She was huddled beneath an oversized black jacket that swallowed her frame. A si
 
 The cigarette was unlit, held between two knuckles like a charm. Her hair fell long and dark, straight across her shoulder. She watched me with a quiet, stillness — one blue eye glinting beneath the hood.
 
+I stepped forward a few paces. Considering ignoring her and the vulnerable, embarrassing moment she spied upon.
+
 "What were you doing?" she asked, her voice small and somehow distant.
 
 \*I think behind me, the bridge creaked. The bus's smooth hum braided with the river's murmur, and the howling wind bent into a note I knew.\*
 
-I didn't flinch. For some reason, that cosmic plea gave me a strange courage. "...Staring". "I was staring at the water."
+I didn't flinch. For some reason, that cosmic plea gave me a strange courage. "...Staring".
+
+Facing her.
+
+"I was staring at the water."
 
 She tilted her head. "Huh." The cigarette made a soft tap, then she slid the earbud back in and turned toward the line of trees, as if whatever had passed between us could be closed like a book.
 
 I stepped a few paces and sat down.
 
-I knew my quiet sanctuary had been found, but maybe in my fear-dream addled brain just sitting next to this random person was a comfort.
+I knew my quiet sanctuary had been found, but maybe in my fear-dream addled brain sitting next to a random person was a comfort.
 
 Sitting there on the edge of the dark, listening to the muffled rhythm of a stranger's song in the falling snow, the silence didn't feel like an empty void anymore.
 
@@ -88,13 +94,15 @@ The whiteout snow swarmed my vision.
 
 It wasn't that I had no friends. I want to be clear about that, if only to myself.
 
-I'd moved here young enough that I should have had every chance most kids get - a clean slate, a English-sounding name no one had decided anything about yet. But somewhere between the moving boxes and my first week of class, I realized I was speaking a half-beat behind everyone else. Not just the language. I had that down quite fast. It was everything underneath. The show they'd all watched as six-year-olds that I'd never seen. The boisterous energy or traditions I didn't grow up with or reciprocate. The specific way they teased each other, gentle on the surface that I could never quite time right — I'd either take it too seriously or laugh a second too late, and either way it marked me as someone translating everything in real time.
+I'd moved here young enough that I should have had every chance most kids get - a clean slate, a English-sounding name no one had decided anything about yet. But somewhere between the moving boxes and my first week of class, I realized I was speaking a half-beat behind everyone else.
+
+Not just the language. I had that down quite fast. It was everything underneath. The show they'd all watched as six-year-olds that I'd never seen. The traditions or boisterous energy I didn't grow up with or reciprocate. The specific way they teased each other, gentle on the surface that I could never quite time right — I'd either take it too seriously or laugh a second too late, and either way it marked me as someone translating everything in real time.
 
 It wasn't anyone's fault. Cliques don't wait. They'd already sorted themselves into little islands with their own laws and inside jokes long before I got off the boat, and every year I spent trying to learn the customs was a year they spent building the next layer of history I hadn't been there for.
 
 There'd been a few hands reaching across the water, if I'm being honest. A kid in fourth grade who saved me a seat for a week straight, patient in a way I didn't know how to accept. A girl in middle school who kept lending me pencils, like she was giving me small, repeated chances to just talk to her. Someone on a group project who texted me twice outside of class before the thread went quiet.
 
-I wanted it. That's the part I don't like admitting. I wanted the seat saved for me, the pencils, the texts. But wanting something and knowing what to do with it are two different muscles, and I'd never gotten the second one to work right. I'd freeze up mid-conversation, unsure which version of myself was allowed to show up, after all the one from home certainly wasn't suitable, and by the time I decided, the moment had already closed over like water. I gave short answers when I meant to give long ones. I said "maybe" when I meant "please." Every kindness came with an unspoken next move I didn't know the shape of, and I was too embarrassed to ask, so I just let the silence stand in for an answer.
+I wanted it. I’d be lying if I said elsewise. I wanted the seat saved for me, the pencils, the texts. But wanting something and knowing what to do with it are two different muscles, and I'd never gotten the second one to work right. I'd freeze up mid-conversation, unsure which version of myself was allowed to show up, after all the one from home certainly wasn't suitable, and by the time I decided, the moment had already closed over like water. I gave short answers when I meant to give long ones. I said "maybe" when I meant "please." Every kindness came with an unspoken next move I didn't know the shape of, and I was too embarrassed to ask, so I just let the silence stand in for an answer.
 
 Eventually the invitations stopped coming, the way anything stops when it keeps getting met with static. It never felt like rejection, exactly.
 
@@ -108,7 +116,7 @@ When I opened my eyes I was already moving.
 
 The bus.
 
-I knew this route by now. Twenty times, easily, maybe more. I'd stopped counting somewhere in September. My eyes felt heavy, sleep still clinging to the edges, and I let them fall shut again, trusting my body to carry the rest.
+I knew this route by now. Twenty times, easily, maybe more. I'd stopped counting somewhere in October. My eyes felt heavy, sleep still clinging to the edges, and I let them fall shut again, trusting my body to carry the rest.
 
 The first turn came, winding and downward, into the valley. My stomach dipped a half-second before it did.
 
@@ -138,7 +146,7 @@ The bus driver was watching me in the big mirror above his seat, one eyebrow rai
 
 I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. That told me nothing. Dreams had hurt before, I just had one that had me up at 4:57 that morning...
 
-I scuffled my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap, a sobering wind that cooled my shaken mind.
+I scuffled my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap. Still, I was glad for it, the sobering wind cooled my head.
 
 I remembered the tangled sheets, the clock reading some ungodly hour, gripping a frozen railing, the raging snow, and sitting next to her...
 
@@ -148,31 +156,31 @@ I had half a mind to ask the bus driver if I was dreaming, but I didn't. That se
 
 ◇
 
-Almost as an answer to my own question, first period that day had a second surprise.
+Almost as an answer to my own question, the second period had a second surprise.
 
 "Today we'll be doing something a bit different", Mr.Harrison's voice was calm, but it carried a boom that made the room quiet. "We'll be looking at a poem, I want you to write what it makes you feel, and you'll turn that in at the end of class. I want you to be honest. Don't worry about what anyone else thinks, just write what comes to mind."
 
 On the chalkboard he scrawled the title of the poem in his neat, looping handwriting: "Masks".
 
-_She had blue skin,_
+*She had blue skin,*
 
-_And so did he._
+*And so did he.*
 
-_He kept it hid_
+*He kept it hid*
 
-_And so did she._
+*And so did she.*
 
-_They searched for blue_
+*They searched for blue*
 
-_Their whole life through,_
+*Their whole life through,*
 
-_Then passed right by--_
+*Then passed right by--*
 
-_And never knew._
+*And never knew.*
 
 I read it twice before the words actually landed.
 
-_They searched for blue their whole life through, then passed right by, and never knew._
+*They searched for blue their whole life through, then passed right by, and never knew.*
 
 I don't know how long I sat there. Around me, pencils had already started their scratch, that steady, papery hum of thirty-one other people turning a feeling into a grade. I looked down at my own blank page. White, empty, waiting.
 
@@ -184,7 +192,7 @@ I don't think I'd ever wanted to write anything more in my life. That should hav
 
 I thought about the bus. The seat that shouldn't have been familiar. The turns I knew before I felt them. A voice that hadn't come. I thought about the cold water and the color that ate the world, and a hand I'd never once actually held while awake.
 
-_They searched for blue their whole life through._
+*They searched for blue their whole life through.*
 
 Something ugly and immediate rose up in me, and before I'd decided to, I was writing.
 
