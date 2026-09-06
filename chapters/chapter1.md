@@ -18,7 +18,7 @@ The air inside is always heavy, thick with a strange, suffocating familiarity. I
 
 It feels better than waking up, but I always wake up anyway. Not just because everything is vanishing to remind me I’m dreaming, but because deep down I know the longer I hold on, the longer a painful hope grows.
 
-So the dream snaps, as it always does, abandoning me to the sudden, heavy quiet of my room. The blank stare of the pale ceiling above me, reflecting back everything I don't have.
+So the dream snaps, as it always does, abandoning me to the sudden, heavy quiet of my room. Nothing like that color at all.
 
 ◇
 
@@ -74,11 +74,9 @@ Once in a while a classmate would wander in for a drink or snack. We'd clock eac
 
 Couples passed through too, sometimes, hands linked over the counter as they debated what flavor of ice cream to split. It never failed to drag me back to the dream. Her hand, the cold, the color that swallowed everything. And every time, I'd hate myself a little for how long the feeling lingered after they left.
 
-It was proof, I think, that some unwanted hope still existed in me. That maybe, someday, something good could still happen. I resented it more than anything else that summer.
+The job ended up teaching me something I didn't expect. That routine, however empty, has its own kind of mercy. You stop having to decide things. Wake up, brush your teeth, eat, work, walk home, sleep, repeat. No thinking required. Some nights I clocked out and couldn't tell you a single thing that happened during the shift, like I'd been absent from my own body for six hours straight.
 
-The job ended up teaching me something I didn't expect. That routine, however empty, has its own kind of mercy. You stop having to decide things. Wake up, brush your teeth, eat, work, walk home, sleep, repeat. No thinking required. Some nights I clocked out and couldn't tell you a single thing that happened during the shift, like I'd been absent from my own body for six hours straight. I didn't mind that. Being absent from myself was, if anything, a relief.
-
-School started back up not long after. I hadn't thought about it much over the summer, hadn't missed it, hadn't dreaded it either — it just existed, the way weather exists, something that happened to you rather than something you had a say in. I guess in that sense, it was a sort of relief.
+School started back up not long after. I hadn't thought about it much over the summer, hadn't missed it, hadn't dreaded it either — it just existed, the way weather exists, something that happened to you rather than something you had a say in.
 
 The classroom hadn't changed. Same rows, same fluorescent hum, same faces I recognized without knowing a single thing about them.
 

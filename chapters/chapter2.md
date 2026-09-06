@@ -52,7 +52,7 @@ Fear. I hadn’t felt it here before, but standing on the precipice, I realized 
 
 And to admit it fully to the silent, falling snow. I had a quiet hope.
 
-I wish my life hadn't been a rounding error. That there had been a cosmic mistake, and that the world wouldn't keep spinning without me. It was an absurd, fragile thing. But it had grown quietly in me.
+I wish, quietly and uselessly, that my life hadn't been a rounding error. That there'd been a cosmic mistake, that the world wouldn't keep spinning without me.
 
 More than that, I'm reliant on the random dreams of a girl I haven't even met. I don't even know if she exists, but I keep hoping that she does. And it was a ridiculous plea, I knew for someone like me it was more than I could hope for. To begin with, they would have to have met me in that darkness, stayed there, and then led me out.
 
@@ -84,7 +84,7 @@ I stepped a few paces and sat down.
 
 I knew my quiet sanctuary had been found, but maybe in my fear-dream addled brain sitting next to a random person was a comfort.
 
-Sitting there on the edge of the dark, listening to the muffled rhythm of a stranger's song in the falling snow, the silence didn't feel like an empty void anymore.
+Sitting there on the edge of the dark, listening to the muffled rhythm of a stranger's song in the falling snow.
 
 In that 16th winter of my life, it just felt like the beginning.
 
