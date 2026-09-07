@@ -28,7 +28,7 @@ It was around this time, while trying to fill my empty days with a new routine t
 
 They have a name for it online — the call of the void. Some intrusive urge telling you to jump, apparently. I don't know about that. I never wanted to jump. I just enjoyed how small it made my life feel. Standing on the ledge, watching people the size of ants scurry between concrete blocks, I felt a strange kind of comfort. If I stepped off, the world would just keep spinning. It wasn't that I actually wanted to; it was the realization that I *could*. When I think about how ridiculous it sounds, things like the emptiness of my life stop bothering me.
 
-My favourite spot was an abandoned concrete bridge overlooking water. The area was understandably gated off with bushes and fences. It was on one of my aimless walks that I found it. A clearing in the bushes and from there following the fences lead to a weakened patch anyone could easily peel up and duck under.
+My favourite spot was an abandoned concrete bridge overlooking water. The area was understandably shielded off with bushes and fences. It was on one of my aimless walks that I found it. A clearing in the bushes and from there following the fences lead to a weakened patch anyone could easily peel up and duck under.
 
 It was a quiet spot I frequented often. In winter, the frozen lake, the crunchy snow, a worn-out wooden bench, and something about the gray-concrete of that bridge was the perfect place for my empty thoughts.
 
@@ -36,13 +36,15 @@ It was also the place I first met her.
 
 ◇
 
-Soon enough the snow melted, and school was out for the summer. I spent most of my days wandering aimlessly, and sometimes I would find myself back at the bridge. The air was warmer now, and thick with humidity. The smell of wet earth and blooming flowers filled my senses, and I felt a strange sense of peace in the changing seasons.
+Soon enough the snow melted, and school was out for the summer. The air was warmer now, and thick with humidity. I spent most of my days lazing at home or wandering aimlessly, and the smell of wet earth and blooming flowers filled my senses.
+
+The bridge in summer was nice too, even if it never had that crisp, clean feeling of winter. The variety was a welcome sight. I felt a strange sense of peace in the changing seasons, proof that the world was moving no matter what.
 
 I also picked up a part-time clerk job just for some extra income, though it was more apt to say that it fell onto me.
 
-"I see you here pretty often," the store manager said, as I cooled off. "You live around here?"
+"I see you here pretty often." The store manager set my change on the counter. "You live around here?"
 
-I had frequented the place for nightly trips of snacks and instant ramen so I guess he recognized me.
+I guess he recognized me from my nightly ramen and snack runs.
 
 I shrugged. "Yeah, not far."
 
@@ -50,7 +52,7 @@ He stared at me curiously. "I was thinking about hiring someone. You want the jo
 
 It was a mindless thing that I picked up on a whim. Maybe it was something about the familiarity of the store that drew me in, after all I didn’t share that same consistency with school. My grades were good enough to pass despite my broken attendance, and it seemed the school didn't care much about that either. I was a ghost in the system, and it suited me too.
 
-I liked that job. It was quiet. I liked the way strangers seemed to carry their own little shades of life, and how easy it was to notice the difference between theirs and mine without it feeling bitter. The bridge in summer was nice too, even if it never had that crisp, clean feeling of winter. The variety was a welcome sight. Proof that the world was moving no matter what.
+I liked that job. It was quiet. I liked the way strangers seemed to carry their own little shades of life, and how easy it was to notice the difference between theirs and mine without it feeling bitter. 
 
 There was a man in an overcoat who came in most nights around closing. Always the same order. A can of black coffee, a pack of cigarettes, sometimes a cold sandwich if he seemed like he remembered to eat that day. He never said much beyond the total, and I never asked. That was fine by me. I liked customers who didn't need anything from me except to ring them up correctly.
 
@@ -84,7 +86,7 @@ It was there, sometime in the blur of the first week, that I noticed something o
 
 It hadn't gone away over the summer, the way I half expected it to. If anything, it had gotten more frequent, some nights twice, close enough together that I'd wake up between them still tasting the same suffocating air, only to fall right back into it minutes later. And there was a new detail now, small enough that I almost missed it: the schoolyard the bus let us out into, the one filled with faceless schoolboys and girls, had started to look uncomfortably similar to the one outside my actual window.
 
-I told myself it was nothing. A trick of overlapping memory, my mind borrowing scenery it already had on hand out of laziness. Dreams did that. They recycled things. It didn't mean anything.
+I told myself it was nothing. A trick of overlapping memory, my mind borrowing scenery it already had on hand out of laziness. Dreams did that. They recycled things.
 
 I told myself that for three more weeks, until the day I looked out during lunch and saw, for just a second, someone standing at the edge of the yard who I was almost certain I recognized — though by the time I blinked, there was no one there at all.
 

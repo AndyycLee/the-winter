@@ -138,7 +138,7 @@ She wasn't calling out.
 
 My heart sank.
 
-I laughed inside, quiet and humorless.  Even my own subconscious was getting lazy.
+I laughed inside, quiet and humorless. Even my own subconscious was getting lazy.
 
 "You getting off?" His sarcastic voice interrupted my thoughts.
 
@@ -162,27 +162,27 @@ Almost as an answer to my own question, the second period had a second surprise.
 
 "Today we'll be doing something a bit different", Mr.Harrison's voice was calm, but it carried a boom that made the room quiet. "We'll be looking at a poem, I want you to write what it makes you feel, and you'll turn that in at the end of class. I want you to be honest. Don't worry about what anyone else thinks, just write what comes to mind."
 
-On the chalkboard he scrawled the title of the poem in his neat, looping handwriting: "Masks".
+On the chalkboard he scrawled the title of the poem in his neat, looping handwriting: "Mimories".
 
-*She had blue skin,*
+_She made him up._
 
-*And so did he.*
+_He made her too._
 
-*He kept it hid*
+_They folded them_
 
-*And so did she.*
+_and kept them blue._
 
-*They searched for blue*
+_They looked for one_
 
-*Their whole life through,*
+_till years were done,_
 
-*Then passed right by--*
+_then stood right there_
 
-*And never knew.*
+_and told no one._
 
 I read it twice before the words actually landed.
 
-*They searched for blue their whole life through, then passed right by, and never knew.*
+_They looked for one till years were done, then stood right there and told no one._
 
 I don't know how long I sat there. Around me, pencils had already started their scratch, that steady, papery hum of thirty-one other people turning a feeling into a grade. I looked down at my own blank page. White, empty, waiting.
 
@@ -194,11 +194,11 @@ I don't think I'd ever wanted to write anything more in my life. That should hav
 
 I thought about the bus. The seat that shouldn't have been familiar. The turns I knew before I felt them. A voice that hadn't come. I thought about the cold water and the color that ate the world, and a hand I'd never once actually held while awake.
 
-*They searched for blue their whole life through.*
+_They looked for one till years were done._
 
 Something ugly and immediate rose up in me, and before I'd decided to, I was writing.
 
-I didn't write about the poem. Not really. I wrote about the useless, humiliating shape of hope. How it kept building itself back up overnight no matter how many mornings I tore it down, like some stubborn weed growing through concrete out of spite. I wrote about waiting for a voice that never came and hating myself for waiting anyway. I wrote, in handwriting that got worse the angrier I got, that maybe two blue people passing each other and never knowing wasn't some tragic accident. Maybe it was just the natural order of things. Maybe the universe wasn't cruel enough to arrange in-yeon across a thousand lifetimes just to snatch it away at the very last second — it simply was indifferent, and everyone who believed otherwise was just doing the exact same thing I was doing, filling silence with meaning because silence was unbearable otherwise.
+I didn't write about the poem. Not really. I wrote about the useless, humiliating shape of hope. How it kept building itself back up overnight no matter how many mornings I tore it down, like some stubborn weed growing through concrete out of spite. I wrote about waiting for a voice that never came and hating myself for waiting anyway. I wrote, in handwriting that got worse the angrier I got, that maybe two people standing right there and saying nothing wasn't some tragic accident. Maybe it was just the natural order of things. Maybe the universe wasn't cruel enough to arrange in-yeon across a thousand lifetimes just to snatch it away at the very last second — it simply was indifferent, and everyone who believed otherwise was just doing the exact same thing I was doing, filling silence with meaning because silence was unbearable otherwise.
 
 My pencil tip snapped clean off on the last line. I didn't notice until I went to press down anyway and nothing came.
 

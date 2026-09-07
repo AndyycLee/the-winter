@@ -14,11 +14,11 @@ I'd seen her before. Years ago. Back when I couldn't speak English and spent rec
 
 Would she even recognize me? Did she remember any of it — the library, the language, me? And under that, a smaller, stupider question I couldn't put down: did she remember the bus. The bench. The cold.
 
-*They searched for blue their whole life through.*
+*They looked for one till years were done.*
 
 The room closed around her before I could decide anything. Names called out. A chair scraped over. Someone already talking to her, already laughing. She disappeared into it the way a stone disappears into a river.
 
-*Then passed right by — and never knew.*
+*Then stood right there and told no one.*
 
 I sat there a while after everyone else had scattered for lunch, rehearsing something to say, and coming up with nothing.
 It wasn't actually the first time I had seen her. I had seen her before, but it had been many years and I doubt she remembered me. We shared a class, back when I was an awkward (though I suppose I still was) boy who couldn't speak English and spent most of his time in the library.
@@ -44,13 +44,13 @@ I couldn't trust if my memories were overlapping, but my second take was winning
 
 And also — I'd seen her before. Years ago. Back when I couldn't speak English and spent recess in the library instead of outside, we'd shared class too. She was always quiet but bright, always surrounded by friends and laughter.
 
-_They searched for blue their whole life through._
+_They looked for one till years were done._
 
 My thoughts wouldn’t stop racing. Would she even recognize me? Did she remember any of it: the library, me? But deeper than that, a question I couldn't push down. The bus. The bench. The cold.
 
 Then the room moved in around her, the way rooms always seemed to move around people who belonged in them. Names called out. A chair scraped over. Someone already asking her something and laughing before she'd even finished answering. She was folded into it almost instantly, swallowed into the current the way a stone disappears the moment it breaks the surface of a river, and I sat there twelve feet away, watching people who weren't me close a distance I hadn't even managed to attempt.
 
-_Then passed right by — and never knew._
+_Then stood right there and told no one._
 
 ◇
 
@@ -90,9 +90,9 @@ I started taking the earlier bus. Not for a reason I could have defended out lou
 
 By the third day I knew her timetable better than my own. Which stairwell she came up. Which door she used after lunch, and that she used it about four minutes after the bell, and that she was usually laughing at something somebody else had said. Perfect attendance, homework in on time, because being a problem would have meant being looked at, and I couldn't afford to be looked at by anyone but her. I could not tell you one thing that happened in any of my own classes that week. I still have the notebook. It's blank.
 
-I called in sick to the store on Wednesday, which I had never done. Then again on Friday, which I had no excuse for at all. The manager said take care of yourself, and I said yeah, and hung up on the only person who had ever handed me something without making me know how to ask for it first.
+I called in sick to the store on Wednesday, which I had never done. Then again on Friday, which I had no excuse for at all. The manager said take care of yourself, and I said yeah, and hung quickly.
 
-I was sleeping about five hours. Midnight to five at the bridge, then the earlier bus. By Thursday my face in the bathroom mirror had started to really remind me of a ghost.
+I was sleeping about six hours. 3 to 7 AM at the bridge, then the earlier bus. By Thursday my face in the bathroom mirror had started to really remind me of a ghost.
 
 I counted the days from the one she walked in.
 
@@ -136,23 +136,23 @@ She went out through the gate with two other girls. They got ahead of her by a f
 
 Not one of the four. I'd spent a week on four of them and what came out was hey, and then nothing for long enough that she had to fill it.
 
-"Hi?" She turned, pleasant, a little quizzical. Up close her eyes were nothing like blue. They were the color I'd already known they were and had been declining to look at directly for nine days.
+"Hi?" She turned, pleasant, a little quizzical. Up close her eyes were almost the blue I'd been carrying around for nine days, and almost is a useless word. They were beautiful, which was the only thing about them I could be sure of. I looked away first.
 
-"Sorry. This is going to sound insane." I heard my own voice doing something strange, going too fast at the front of each sentence. "The bridge past the river. Where the fence has a gap in it. Were you there? A couple of weeks ago, early, before it was light."
+"Sorry. This is going to sound insane." I heard my own voice doing something strange, going too fast at the front of each sentence. "The bridge past the river. Where the fence has a gap in it. Were you there? A couple of weeks ago, early morning."
 
-She thought about it. She actually thought about it, which was worse than if she'd laughed.
+She thought about it. She actually thought about it, which was somehow cruel.
 
 "I don't think so," she said. "I don't really know where that is."
 
-"You had a black jacket. Too big for you. And a cigarette you never lit." I couldn't stop. The evidence had been sitting in me for two weeks with nowhere to go and it came out in the order I'd stored it, which was not an order that helps anyone. "One earbud in. You asked me what I was doing and I said I was staring at the water."
+"You had a black jacket. Too big for you. And a cigarette you never lit." I couldn't stop. The evidence had been sitting in me for two weeks with nowhere to go and it came out in the order I'd stored it, which was not an order that helps anyone. "You asked me what I was doing and I said I was staring at the water."
 
-"I don't smoke," she said.
+"I don't smoke."
 
 She said it gently. She said it the way you'd hand somebody back something they'd dropped.
 
-"Okay," I said. "Okay. But you sat there. We sat there, you put your earbud back in and we sat there and then I."
+"Okay," my voice trailing. "Okay..."
 
-There was a pause where the next word should have been. I stood there and swallowed them back in my throat.
+There was a pause where the next word should have been. An earbud. A shared silence. I stood there and swallowed them back in my throat.
 
 "Were you okay?" she asked. "Out there. I mean."
 
@@ -166,11 +166,11 @@ Her friends called something from the corner. She said she'd see me in January, 
 
 ◇
 
-I walked home instead of taking the bus, and by the time I reached my street I'd already built the other version, which took no effort at all. That was the humiliating part. It assembled itself in about six minutes.
+I walked home instead of taking the bus, and by the time I reached my street I'd already built the other version, which took no effort at all. It was humiliating. It assembled itself in about six minutes.
 
-I woke at 4:57 from a nightmare about falling. I did not go anywhere. I fell asleep again in the clothes I was already wearing, which is a thing I have done a hundred times, and the rest of it happened behind my eyes where the rest of it always happens. The girl on the bench was the girl from the bus dream in a different coat, because that is what dreams do, they recycle, I'd said so myself in September. In the morning my body did the route the way it always did.
+I woke at 4:57 from a nightmare about falling. I did not go anywhere. I fell asleep again in the clothes I was already wearing, and the rest of it happened behind my eyes where it always happened. The girl on the bench was the girl from the bus dream in a different coat, because that is what dreams do, they recycle, I'd said so myself in September. In the morning my body did the route.
 
-Come to think of it, I didn't remember standing up from that bench. Not the walk back, not the stop, not getting on.
+Come to think of it, I didn't remember standing up from her bench. Not the walk back, not the stop, not getting on.
 
 Every piece fit. It had always fit. I'd just needed it not to.
 
