@@ -152,7 +152,7 @@ She said it gently. She said it the way you'd hand somebody back something they'
 
 "Okay," I said. "Okay. But you sat there. We sat there, you put your earbud back in and we sat there and then I."
 
-There was a pause where the next word should have been. I heard myself not say it. I stood there and swallowed them back in my throat.
+There was a pause where the next word should have been. I stood there and swallowed them back in my throat.
 
 "Were you okay?" she asked. "Out there. I mean."
 
