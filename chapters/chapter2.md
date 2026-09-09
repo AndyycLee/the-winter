@@ -54,21 +54,19 @@ I wish, quietly and uselessly, that my life hadn't been a rounding error. That t
 
 More than that, I'm reliant on the random dreams of a girl I haven't even met. I don't even know if she exists, but I keep hoping that she does. And it was a ridiculous plea, I knew for someone like me it was more than I could hope for. To begin with, they would have to have met me in that darkness, stayed there, and then led me out.
 
-My hands were cold. And the snow swirled furiously, blinding my eyes.
+My hands were frozen. The whiteout snow swarmed my vision.
 
 Turning around was a strange sight.
 
 The bench was empty, except it wasn’t. A girl sat near the far end.
 
-She was huddled beneath an oversized black jacket that swallowed her frame. A single wired earbud dangled from her left ear; the other remained in. For an instant the world around her flashed a violent color. And I couldn't tell if I'd seen it or if it was being made right then from the caked snow's reflection of dawn.
-
-The cigarette was unlit, held between two knuckles like a charm. Her hair fell long and dark, straight across her shoulder. She watched me with careful, stillness — one blue eye glinting beneath the hood.
+She was huddled beneath an oversized black jacket that swallowed her frame. A single wired earbud dangled from her left ear; the other remained in. The cigarette between her knuckles was unlit. Snow settling in her long, dark hair spilling over her shoulder. She watched me with careful, stillness — one blue eye glinting beneath the hood.
 
 I stepped forward a few paces. Considering ignoring her and the vulnerable, embarrassing moment she witnessed.
 
 "What were you doing?" she asked, her voice distant.
 
-\*I think behind me, the bridge creaked. The bus's smooth hum braided with the river's murmur, and the howling wind bent into a note I knew.\*
+\*The rising dawn reflected off the fresh snow, a gentle light. The bus's smooth hum braided with the river's murmur, and the howling wind defeaned my ears.\*
 
 I didn't flinch. For some reason, that cosmic plea gave me a strange courage. "...Staring".
 
@@ -85,8 +83,6 @@ I knew my quiet sanctuary had been found, but maybe in my fear-dream addled brai
 Sitting there on the edge of the dark, listening to the muffled rhythm of a stranger's song in the falling snow.
 
 In that 16th winter of my life, it just felt like the beginning.
-
-The whiteout snow swarmed my vision.
 
 ◇
 

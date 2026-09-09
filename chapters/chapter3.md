@@ -118,7 +118,7 @@ She pondered. She actually pondered it, which was somehow cruel.
 
 "I don't smoke."
 
-She said it gently. She said it the way you'd hand somebody back something they'd dropped.
+She said it gently. The way you'd hand somebody back something they'd dropped.
 
 "Okay," my voice trailing. "Okay..."
 
