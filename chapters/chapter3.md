@@ -48,7 +48,7 @@ Just rough wood, and the shape the snow makes when nothing has sat in it for a l
 
 ◇
 
-I told myself I'd talk to her tomorrow. Tomorrow turned out to be the safest word I owned that week — infinitely renewable, never actually due.
+I told myself I'd talk to her tomorrow. "Tomorrow" was the the safest word in my vocabulary — infinitely renewable, never actually due.
 
 I'll be honest. What I did next was probably overreaching.
 
