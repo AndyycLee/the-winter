@@ -1,4 +1,4 @@
-There was a surprising thing that happened that year.
+## One
 
 November had completed its slow, quiet violence. The last stubborn leaves on the banks had given up their hold, leaving the trees naked, their branches reaching into the low, dark purple-bruised sky like exposed veins.
 
@@ -38,11 +38,9 @@ I woke gasping, my shirt stuck to my chest, sweat running down the side of my fa
 
 The apartment. My bed. 4:57 AM according to the clock on the wall.
 
-A dream.
+I was still shaking. I closed my eyes to steel myself, but my skin continued tingling and visions replayed. I thought I‘d understood myself, but this was proof. \*Zero\* wasn’t enough. I pushed the sheets away and sat up, feeling the cold air hit my skin and stick there.
 
-I was still shaking. But more than anything I felt humiliated. I thought I‘d understood myself, but this was proof. \*Zero\* wasn’t enough. I pushed the sheets away and sat up, feeling the cold air hit my skin and stick there, uncomfortable.
-
-I couldn't go back to sleep. My skin was slick and I felt a wetness in my eyes I knew wasn't sweat. I pulled on my jacket - I needed to verify my philosophy.
+There was a wetness in my eyes I knew wasn't sweat. Pulling on my jacket - I needed to verify my philosophy.
 
 The view I spied from the bridge was nearly identical to the one I had imagined. The water was still dirty blue-grey, but it was slowly moving, and the snow was falling violently faster in a way that made it look like the world was being washed clean.
 
@@ -64,11 +62,11 @@ The bench was empty, except it wasn’t. A girl sat near the far end.
 
 She was huddled beneath an oversized black jacket that swallowed her frame. A single wired earbud dangled from her left ear; the other remained in. For an instant the world around her flashed a violent color. And I couldn't tell if I'd seen it or if it was being made right then from the caked snow's reflection of dawn.
 
-The cigarette was unlit, held between two knuckles like a charm. Her hair fell long and dark, straight across her shoulder. She watched me with a quiet, stillness — one blue eye glinting beneath the hood.
+The cigarette was unlit, held between two knuckles like a charm. Her hair fell long and dark, straight across her shoulder. She watched me with careful, stillness — one blue eye glinting beneath the hood.
 
-I stepped forward a few paces. Considering ignoring her and the vulnerable, embarrassing moment she spied upon.
+I stepped forward a few paces. Considering ignoring her and the vulnerable, embarrassing moment she witnessed.
 
-"What were you doing?" she asked, her voice small and somehow distant.
+"What were you doing?" she asked, her voice distant.
 
 \*I think behind me, the bridge creaked. The bus's smooth hum braided with the river's murmur, and the howling wind bent into a note I knew.\*
 
@@ -78,7 +76,7 @@ Facing her.
 
 "I was staring at the water."
 
-She tilted her head. "Huh." The cigarette made a soft tap, then she slid the earbud back in and turned toward the line of trees, as if whatever had passed between us could be closed like a book.
+She tilted her head. "Huh." The cigarette made a soft tap, then she slid the earbud back in and turned toward the line of trees, as if whatever had passed between us had closed.
 
 I stepped a few paces and sat down.
 
@@ -92,31 +90,11 @@ The whiteout snow swarmed my vision.
 
 ◇
 
-It wasn't that I had no friends. I want to be clear about that, if only to myself.
-
-I'd moved here young enough that I should have had every chance most kids get - a clean slate, a English-sounding name no one had decided anything about yet. But somewhere between the moving boxes and my first week of class, I realized I was speaking a half-beat behind everyone else.
-
-Not just the language. I had that down quite fast. It was everything underneath. The show they'd all watched as six-year-olds that I'd never seen. The traditions or boisterous energy I didn't grow up with or reciprocate. The specific way they teased each other, gentle on the surface that I could never quite time right — I'd either take it too seriously or laugh a second too late, and either way it marked me as someone translating everything in real time.
-
-It wasn't anyone's fault. Cliques don't wait. They'd already sorted themselves into little islands with their own laws and inside jokes long before I got off the boat, and every year I spent trying to learn the customs was a year they spent building the next layer of history I hadn't been there for.
-
-There'd been a few hands reaching across the water, if I'm being honest. A kid in fourth grade who saved me a seat for a week straight, patient in a way I didn't know how to accept. A girl in middle school who kept lending me pencils, like she was giving me small, repeated chances to just talk to her. Someone on a group project who texted me twice outside of class before the thread went quiet.
-
-I wanted it. I’d be lying if I said elsewise. I wanted the seat saved for me, the pencils, the texts. But wanting something and knowing what to do with it are two different muscles, and I'd never gotten the second one to work right. I'd freeze up mid-conversation, unsure which version of myself was allowed to show up, after all the one from home certainly wasn't suitable, and by the time I decided, the moment had already closed over like water. I gave short answers when I meant to give long ones. I said "maybe" when I meant "please." Every kindness came with an unspoken next move I didn't know the shape of, and I was too embarrassed to ask, so I just let the silence stand in for an answer.
-
-Eventually the invitations stopped coming, the way anything stops when it keeps getting met with static. It never felt like rejection, exactly.
-
-Like I'd shown up to a conversation that had started without me and would keep going long after, and no one had done anything wrong by not waiting. The way you'd stop knocking on a door that never quite opened even when the lights were clearly on inside.
-
-So I got used to being on my own. Just because, somewhere along the way, you make do with the silence. And after, I never learned what else was supposed to go in its place.
-
-◇
-
-When I opened my eyes I was already moving.
+I was already moving.
 
 The bus.
 
-I knew this route by now. Twenty times, easily, maybe more. I'd stopped counting somewhere in October. My eyes felt heavy, sleep still clinging to the edges, and I let them fall shut again, trusting my body to carry the rest.
+I knew this route by now. Twenty times, easily, maybe more. I'd stopped counting somewhere in October. My eyes felt heavy, sleep still clinging to the edges, and I let them fall shut, trusting my body to carry the rest.
 
 The first turn came, winding and downward, into the valley. My stomach dipped a half-second before it did.
 
@@ -126,7 +104,7 @@ Somewhere in there the road turned uneven for a stretch, gravel under the tires,
 
 When I opened my eyes the courtyard was already sliding into view — the low brick wall out front, the flagpole with its rope clinking softly against the metal, kids in uniform clustering in twos and threes, breath fogging in the cold. The bus eased into its usual stop along the curb, brakes sighing long and tired.
 
-The small, familiar lift rose in my chest anyway, that stupid, threadbare hope, the one that started the second before the doors opened, the one that existed only for her short call.
+The small, familiar lift rose in my chest anyway. A threadbare hope. It started a second before the doors opened, existing for only a moment.
 
 The doors opened.
 
@@ -136,17 +114,15 @@ Just the ordinary scrape of shoes on the step, someone's bag zipper, the cold cu
 
 She wasn't calling out.
 
-My heart sank.
+I laughed inside, dry and humorless. Even my own subconscious was getting lazy.
 
-I laughed inside, quiet and humorless. Even my own subconscious was getting lazy.
-
-"You getting off?" His sarcastic voice interrupted my thoughts.
+"You getting off?"
 
 The bus driver was watching me in the big mirror above his seat, one eyebrow raised, the door still hanging open as a small queue of kids streamed out.
 
 I looked down at myself. My house jacket, hanging open over the shirt I'd slept in, the collar still damp.
 
-I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. That told me nothing. Dreams had hurt before, I just had one that had me up at 4:57 that morning...
+I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. Which told me nothing. Dreams had hurt before, I just had one that had me up at 4:57 that morning...
 
 I scuffled my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap. Still, I was glad for it, the sobering wind cooled my head.
 
@@ -160,7 +136,7 @@ I had half a mind to ask the bus driver if I was dreaming, but I didn't. That se
 
 Almost as an answer to my own question, the second period had a second surprise.
 
-"Today we'll be doing something a bit different", Mr.Harrison's voice was calm, but it carried a boom that made the room quiet. "We'll be looking at a poem, I want you to write what it makes you feel, and you'll turn that in at the end of class. I want you to be honest. Don't worry about what anyone else thinks, just write what comes to mind."
+"Today we'll be doing something a bit different", Mr. Holt's voice was calm, but it carried a boom that made the room quiet. "We'll be looking at a poem, I want you to write what it makes you feel, and you'll turn that in at the end of class. I want you to be honest. Don't worry about what anyone else thinks, just write what comes to mind."
 
 On the chalkboard he scrawled the title of the poem in his neat, looping handwriting: "Mimories".
 
@@ -208,7 +184,7 @@ There was a tinge of embarrassment in me, but it was a quiet thing. A thought cr
 
 The bell rang not long after. Chairs scraped, voices rose back to their normal volume, and the room exhaled the particular tension a poem like that leaves behind once everyone's allowed to stop pretending they felt something.
 
-"Before you all go," Mr. Harrison said, raising his voice over the shuffle, "one more thing."
+"Before you all go," Mr. Holt said, raising his voice over the shuffle, "one more thing."
 
 The room didn't fully quiet, but enough of it did.
 
