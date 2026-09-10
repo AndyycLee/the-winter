@@ -1,6 +1,6 @@
 ## Zero
 
-I fell in love with a girl who doesn't exist. Sounds absurd, I know. But she was real for exactly 731 days, starting a little past 5 AM on November 30. She's haunted me ever since.
+I fell in love with a girl who doesn't exist. Sounds absurd, right? But she was real for exactly 731 days, starting a little past 5 AM on November 30. She's haunted me ever since.
 
 ◇
 
@@ -60,7 +60,7 @@ He stared at me curiously. "I was thinking about hiring someone. You want the jo
 
 It was a mindless thing that I picked up on a whim. Maybe it was something about the familiarity of the store that drew me in, after all I didn’t share that same consistency with school. My grades were good enough to pass despite my broken attendance, and it seemed the school didn't care much about that either. I was a ghost in the system, and it suited me too.
 
-I liked that job. It was quiet. I liked the way strangers seemed to carry their own little shades of life, and how easy it was to notice the difference between theirs and mine without it feeling bitter. 
+I liked that job. It was quiet. I liked the way strangers seemed to carry their own colors of life, and I could observe them without needing to participate. 
 
 There was a man in an overcoat who came in most nights around closing. Always the same order. A can of black coffee, a pack of cigarettes, sometimes a cold sandwich if he seemed like he remembered to eat that day. He never said much beyond the total, and I never asked. That was fine by me. I liked customers who didn't need anything from me except to ring them up correctly.
 
@@ -72,7 +72,7 @@ But one night he lingered by the counter a second too long, coffee already in ha
 
 He almost smiled at that, like it reminded him of something, and left without another word. I didn't think about it again until the next night, when he showed up at the same time and said nothing at all. Like the exchange had never happened, or like it had been enough.
 
-I found myself, against my better judgment, waiting for closing a little more carefully after that. Maybe, it was just something to break the monotony.
+I found myself, against my better judgment, waiting for closing a little more carefully after that. Maybe it was just something to break the monotony.
 
 He didn't come in the next night. Or the night after.
 
@@ -90,7 +90,7 @@ School started back up not long after. I hadn't thought about it much over the s
 
 ◇
 
-It wasn't that I had no friends. I want to be clear about that, if only to myself.
+It wasn't that I had no chances for friends. I want to be clear about that, if only to myself.
 
 I'd moved here young enough that I should've had every chance most kids get - a clean slate, an English-sounding name no one had decided anything about yet. But somewhere between the moving boxes and my first week of class, I realized I was speaking a half-beat behind everyone else.
 
@@ -98,9 +98,17 @@ Not just the language. I had that down quite fast. It was everything underneath.
 
 It wasn't anyone's fault. Cliques don't wait. They'd already sorted themselves into little islands with their own laws and inside jokes long before I got off the boat, and every year I spent trying to learn the customs was a year they spent building the next layer of history I hadn't been there for.
 
-There'd been a few hands reaching across the water, if I'm being honest. A kid in fourth grade who saved me a seat for a week straight. Another in middle school who kept lending me pencils. Someone on a group project who texted me twice outside of class before the thread went quiet.
+One of my earliest memories at school was the reading log. A grid of the month printed on cheap paper, a column for minutes, a line at the bottom for a parent to sign, and at the end of it the teacher would tally everyone's hours and read the totals out. I decided I would read three hours a day. If twenty minutes earned a baseline score, three hours represented a massive surplus. I assumed the teacher operated on a pure merit system and that accumulating the highest aggregate would secure her approval, establishing my place at the top of the classroom hierarchy.
 
-I wanted it. I’d be lying if I said elsewise. I wanted the seat saved, the pencils, the texts. But wanting something and knowing what to do with it are two separate things, and I never developed the second one. I'd freeze up mid-conversation, unsure which version of myself was allowed to show up, after all the one from home certainly wasn't suitable, and by the time I decided, the moment had already closed over. I gave short answers when I meant to give long ones. They were patient in a way I didn't know how to accept.
+And I did it. You don't need to believe me, but it's true. We didn't own many English books, so I reread the same ones until my eyes glazed over the words from boredom. I sat at the kitchen table while my dad drank, turned the pages on schedule, watched the clock above the stove, and felt, underneath all that monotony, enormously good about myself.
+
+At the end of the month she held my sheet up and asked, in front of everyone, whether I was sure about my numbers. Three hours. Every single day. She said it lightly. "You shouldn't forge your parent's initials just to make yourself look special". Only she was wrong. Though there's no way to say that out loud at that age without sounding like you're lying a second time.
+
+So I said nothing, and it settled. After that I was the boy who'd made his hours up. To the teacher, I was a dishonest student who forged signatures. To my classmates, I was an outsider who had tried to cheat his way ahead and failed. It just became one of the things about me.
+
+There'd been a few hands reaching across the water, if I'm being honest. A kid in fourth grade who saved me a seat. Someone on a group project who texted me twice outside of class before the thread went quiet.
+
+I wanted it. I’d be lying if I said elsewise. I wanted the seat saved, the texts. But wanting something and knowing what to do with it are two separate things, and I never developed the second one. I'd freeze up mid-conversation, unsure which version of myself was allowed to show up, after all the one from home certainly wasn't suitable, and by the time I decided, the moment had already closed. I gave short answers when I meant to give long ones. And people just found it easier to form different friends.
 
 Eventually the invitations stopped coming. You knock at a house with the lights on, nobody answers, and eventually you stop knocking. It never felt like rejection, exactly.
 
@@ -156,11 +164,11 @@ The greatest good for the greatest number.
 
 If you are a net zero. If your presence neither adds joy nor subtracts misery from the world. Then in the eyes of a utilitarian, you aren't even part of the world. You don't exist.
 
-It had always been my strange comfort. I could drift through life without leaving a mark, and exit it when I wanted without anyone noticing. But, I noticed that very same emptiness gained a hollow weight.
+It had always been my strange comfort. I could drift through life without leaving a mark, and exit it when I wanted without anyone noticing. But, I noticed that the same feeling gained a hollow weight.
 
 Back in Korea, my dad taught me a philosophy. Bumo-eum. A deep indebtedness owed to one's parents. But he translated it to me as a debt owed to the world. He said that every child was born with a specific debt to the world, and that growing up was simply the long, slow process of paying it back through work, through love, through memory.
 
-Of course I paid it no mind at the time. Alcohol stretched my father's worthless stories to infinity. He clearly didn't care about me, and me him. But now, I considered it. Every person I've met so far has been a stranger, so I think I owed them no debt. But what about the people I had never met? The people who would never know me, and yet would be affected by my actions, or inactions? Did I owe them something too?
+Of course I paid it no mind at the time. Alcohol stretched my father's worthless stories to infinity. He clearly didn't care about me. And me him. But now, I considered it. Every person I've met so far has been a stranger, so I think I owed them no debt. But what about the people I had never met? The people who would never know me, and yet would be affected by my actions, or inactions? Did I owe them something too?
 
 If I disappeared on the walk home today, if I simply stepped off the edge of the abandoned bridge and into the grey, rushing river below, what would change in the grand ledger of the world?
 

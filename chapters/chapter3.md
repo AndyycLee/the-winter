@@ -16,7 +16,7 @@ _They looked for one till years were done._
 
 Still, my thoughts started to race. Would she even recognize me? Did she remember any of it: the library, me? But deeper than that, a question I couldn't push down. The bus. The bench. The cold.
 
-Then the room moved in around her, the way rooms always seemed to move around people who belonged in them. Names called out. A chair scraped over. Someone already asking her something and laughing before she'd even finished answering. She was folded into it almost instantly, swallowed into the current the way a stone disappears the moment it breaks the surface, and I sat there twelve feet away, watching people who weren't me close a distance I hadn't even managed to attempt.
+Then the room moved in around her, the way rooms always seemed to move around people who belonged in them. Names called out. A chair scraped over. Someone already asking her something and laughing before she'd even finished answering. She was folded into it almost instantly, swallowed into the current the way a stone disappears the moment it breaks the surface, and I sat there four meters away, watching people who weren't me close a distance I hadn't even managed to attempt.
 
 _Then stood right there and told no one._
 
@@ -66,7 +66,7 @@ I was sleeping about six hours. 3 to 7 AM at the bridge, then the earlier bus. W
 
 I counted the days from the one she walked in.
 
-The second day she caught my eye and I looked down at a textbook I wasn't reading, and told myself it hadn't looked like retreat, even though from twelve feet away I hadn't fooled anyone, least of all myself.
+The second day she caught my eye and I looked down at a textbook I wasn't reading, and told myself it hadn't looked like retreat, even though from four meters away I hadn't fooled anyone, least of all myself.
 
 The third day someone else's joke earned the version of her laugh I'd been drafting sentences all week just to hear, and I put my head down and told myself that was information, not injury.
 
@@ -74,11 +74,11 @@ The fourth day she said something to the girl beside her and glanced back toward
 
 The fifth day I didn't even manage the glance.
 
-Mr. Holt handed the essays back that afternoon. Mine had no grade on it. Just a check, and under it, in the same neat looping hand: _See me if you'd like to._ I read it maybe five times, counted the words, decided the "if" was doing something specific, and put it in my bag. I did not go see him.
+Mr. Holt handed the essays back that afternoon. Mine had no grade on it. Just a check, and under it, in the same neat looping hand: _See me if you'd like to._ I read it maybe five times, counted the words, decided the "if" was doing something specific, and put it in my bag. I didn't go see him.
 
 By the end of it I'd lost count of the versions of myself I'd auditioned and discarded before they ever reached her. It didn't feel like rejection. It never had, with anyone. I knew that failure by heart. I'd catalogued it years ago and filed it under weather. The house with the lights on, and eventually you stop knocking.
 
-This one had a gate in front of it. I never made it up the path to knock at all, and there was nothing to file that under but myself. The twelve feet never changed. Somehow that felt like widening anyway, the way a wound can ache worse for staying exactly the same size, day after day, instead of closing.
+This one had a gate in front of it. I never made it up the path to knock at all, and there was nothing to file that under but myself. The four meters never changed. Somehow that felt like widening anyway, the way a wound can ache worse for staying exactly the same size, day after day, instead of closing.
 
 Tomorrow stopped being infinitely renewable on Friday afternoon, when the office taped a notice up by the stairwell. Last day of term the following Friday. Have a safe holiday.
 

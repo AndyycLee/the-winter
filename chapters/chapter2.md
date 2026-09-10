@@ -4,7 +4,7 @@ November had completed its slow, quiet violence. The last stubborn leaves on the
 
 Like usual I found my way to the bench. The wood dark and slick, and my jeans soaked through almost immediately, but I didn't move.
 
-The wood tilted slightly. Or my attention shifted. I wasn't sure which, and I let the damp air fill my lungs.
+The wood tilted slightly. And I let the damp air fill my lungs.
 
 Maybe it was because I was dwelling on philosophy for so long that another idea came to me. In the language I left behind, there is a word for the threads that pull people together across time and space: In-yeon.
 
@@ -18,11 +18,11 @@ I'll admit it. I'm reliant on other people I deem "strangers". But still, the co
 
 If it took eight thousand lives of shared history just to bump shoulders with a passerby, then how many cosmic failures did it take to end up like this? How many lifetimes had I spent turning away, burning bridges, or simply failing to exist, to end up in a place where every thread had snapped?
 
-I closed my eyes, listening to the monotonous drip-drip of the overpass.
+I closed my eyes, listening to the monotonous drip-drip of the span.
 
 And then I stood up. My legs were stiff from sitting, and the cold had worked into my joints. I walked toward the bridge, my shoes leaving crunchy imprints on the snowed path. The concrete was slick, and I moved carefully at first, then less carefully.
 
-The bridge had a weathered metal railing, rust blooming in places. I kept one hand on it as I walked. I liked the piercingly cold texture, and snow gently fell in crisp flakes.
+The crossing had a weathered metal railing, rust blooming in places. I kept one hand on it as I walked. I liked the piercingly cold texture, and snow gently fell in crisp flakes.
 
 Below, the water was a dirty blue-grey.
 
@@ -34,11 +34,11 @@ The cold came first. Then the dark. Then nothing.
 
 —
 
-I woke gasping, my shirt stuck to my chest, sweat running down the side of my face. My heart was moving fast. The ceiling above me was close, too close, and my sheets were tangled around my legs like something that had been trying to hold me down.
+I woke gasping, my shirt stuck to my chest, sweat running down the side of my face. My heart was moving fast. And my sheets were tangled around my legs like something that had been trying to hold me down.
 
 The apartment. My bed. 4:57 AM according to the clock on the wall.
 
-I was still shaking. I closed my eyes to steel myself, but my skin continued tingling and visions replayed. I thought I‘d understood myself, but this was proof. \*Zero\* wasn’t enough. I pushed the sheets away and sat up, feeling the cold air hit my skin and stick there.
+I was still shaking. I closed my eyes to steel myself, but I couldn't stop my skin from tingling and visions replaying. I thought I‘d understood myself, but this was proof. \*Zero\* wasn’t enough. I pushed the sheets away and sat up, feeling the cold air hit my skin and stick there.
 
 There was a wetness in my eyes I knew wasn't sweat. Pulling on my jacket - I needed to verify my philosophy.
 
@@ -48,7 +48,7 @@ As I took one step closer to the edge, looking straight down into the murky curr
 
 Fear. I hadn’t felt it here before, but standing on the precipice, I realized it was entirely mine. I just stood there on the slick concrete of the bridge, my hands gripping the cold railing. Heavy and terrifying, my wet hair and my shaking legs belonged to me.
 
-And to admit it fully to the silent, falling snow. I had a quiet hope.
+And to confess it fully to the silent, falling snow. I had a quiet hope.
 
 I wish, quietly and uselessly, that my life hadn't been a rounding error. That there'd been a cosmic mistake, that the world wouldn't keep spinning without me.
 
@@ -124,7 +124,7 @@ I scuffled my shoes up quickly, and stepped off the bus, letting the doors close
 
 I remembered the tangled sheets, the clock reading some ungodly hour, gripping a frozen railing, the raging snow, and sitting next to her...
 
-Six words. That was all of it. I'd sat down and let her put the earbud back in, and I hadn't asked her name, or what she was doing out there at that hour, or whether she'd be there tomorrow. 5 inches of space between us and I let it be.
+Six words. That was all of it. I'd sat down and let her put the earbud back in, and I hadn't asked her name, or what she was doing out there at that hour, or whether she'd be there tomorrow. 10 centimeters of space between us and I let it be.
 
 I had half a mind to ask the bus driver if I was dreaming, but I didn't. That seemed a bit too ridiculous. Geez, did I even have a life of my own?
 
@@ -156,7 +156,7 @@ I read it twice before the words actually landed.
 
 _They looked for one till years were done, then stood right there and told no one._
 
-I don't know how long I sat there. Around me, pencils had already started their scratch, that steady, papery hum of thirty-one other people turning a feeling into a grade. I looked down at my own blank page. White, empty, waiting.
+I don't know how long I sat there. Around me, pencils had already started their scratch, that steady, papery drone of thirty-one other people turning a feeling into a grade. I looked down at my own blank page. White, empty, waiting.
 
 It felt less like a poem and more like something had reached into my chest, read a private file, and typed it back up on a chalkboard.
 
@@ -174,7 +174,7 @@ I didn't write about the poem. Not really. I wrote about the useless, humiliatin
 
 My pencil tip snapped clean off on the last line. I didn't notice until I went to press down anyway and nothing came.
 
-I sat there breathing a little too hard, staring at a paragraph I hadn't meant to write, in a classroom that suddenly felt too bright, too normal, entirely unaware of what had just happened three feet above the linoleum.
+I sat there breathing a little too hard, staring at a paragraph I hadn't meant to write, in a classroom that suddenly felt too bright, too normal, entirely unaware of what had just happened a meter above the linoleum.
 
 There was a tinge of embarrassment in me, but it was a quiet thing. A thought crossed my mind that perhaps I was losing my grip on the world entirely, spinning a fragile delusion out of lonely desperation. Yet, even if this sequence right now was a dream, there was a strange, poetic comfort in choosing to commit a completely meaningless act on purpose.
 
