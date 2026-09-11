@@ -6,9 +6,9 @@ I fell in love with a girl who doesn't exist. Sounds absurd, right? But she was 
 
 That winter, I began to have a recurring dream.
 
-I’ve never been one to put an importance on dreams. Random noise, forgotten the second your eyes open. But lately, every time I close my eyes, I find myself back on that crowded bus.
+I’ve never put an importance on dreams. Random noise, forgotten the second your eyes open. But lately, every time I close my eyes, I find myself back on that crowded bus.
 
-The air inside is always dense, hazy with a familiarity that feels suffocating. It’s packed with people, but I can't make out their faces. As if the sequence surfacing in my mind is meant for someone else.
+The air inside is always dense. It’s packed with people, but I can't make out their faces. As if the sequence surfacing in my mind is meant for someone else.
 
 *The bus travels with a quiet, frictionless smoothness, and I’m seated towards the back. We jet past scenic waterfalls and cut through a tree-filled neighborhood. Every detail is unfamiliar, yet I catch myself recognizing the paths.*
 
@@ -90,15 +90,7 @@ School started back up not long after. I hadn't thought about it much over the s
 
 ◇
 
-It wasn't that I had no chances for friends. I want to be clear about that, if only to myself.
-
-I'd moved here young enough that I should've had every chance most kids get - a clean slate, an English-sounding name no one had decided anything about yet. But somewhere between the moving boxes and my first week of class, I realized I was speaking a half-beat behind everyone else.
-
-Not just the language. I had that down quite fast. It was everything underneath. The show they'd all watched as six-year-olds that I'd never seen. The traditions or boisterous energy I didn't grow up with or reciprocate. The specific way they teased each other, gentle on the surface that I could never quite time right — I'd either take it too seriously or laugh a second too late, and either way it marked me as someone translating everything in real time.
-
-It wasn't anyone's fault. Cliques don't wait. They'd already sorted themselves into little islands with their own laws and inside jokes long before I got off the boat, and every year I spent trying to learn the customs was a year they spent building the next layer of history I hadn't been there for.
-
-One of my earliest memories at school was the reading log. A grid of the month printed on cheap paper, a column for minutes, a line at the bottom for a parent to sign, and at the end of it the teacher would tally everyone's hours and read the totals out. I decided I would read three hours a day. If twenty minutes earned a baseline score, three hours represented a massive surplus. I assumed the teacher operated on a pure merit system and that accumulating the highest aggregate would secure her approval, establishing my place at the top of the classroom hierarchy.
+One of my earliest memories at school was the reading log. A grid of the month printed on cheap paper, a column for minutes, a line at the bottom for a parent to sign, and at the end of it the teacher would tally everyone's hours and read the totals out. I decided I would read three hours a day. If twenty minutes earned a baseline score, three hours represented a massive surplus. I assumed the teacher operated on a pure merit system and that accumulating the most would secure her approval, establishing my place at the top of the classroom hierarchy.
 
 And I did it. You don't need to believe me, but it's true. We didn't own many English books, so I reread the same ones until my eyes glazed over the words from boredom. I sat at the kitchen table while my dad drank, turned the pages on schedule, watched the clock above the stove, and felt, underneath all that monotony, enormously good about myself.
 
@@ -106,15 +98,23 @@ At the end of the month she held my sheet up and asked, in front of everyone, wh
 
 So I said nothing, and it settled. After that I was the boy who'd made his hours up. To the teacher, I was a dishonest student who forged signatures. To my classmates, I was an outsider who had tried to cheat his way ahead and failed. It just became one of the things about me.
 
-There'd been a few hands reaching across the water, if I'm being honest. A kid in fourth grade who saved me a seat. Someone on a group project who texted me twice outside of class before the thread went quiet.
+It wasn't that I had no chances for friends. I want to be clear about that, if only to myself.
 
-I wanted it. I’d be lying if I said elsewise. I wanted the seat saved, the texts. But wanting something and knowing what to do with it are two separate things, and I never developed the second one. I'd freeze up mid-conversation, unsure which version of myself was allowed to show up, after all the one from home certainly wasn't suitable, and by the time I decided, the moment had already closed. I gave short answers when I meant to give long ones. And people just found it easier to form different friends.
+I'd moved here young enough that I should've had every chance most kids get - a clean slate, an English-sounding name no one had decided anything about yet. But somewhere between the moving boxes and my first week of class, I realized I was speaking a half-beat behind everyone else.
 
-Eventually the invitations stopped coming. You knock at a house with the lights on, nobody answers, and eventually you stop knocking. It never felt like rejection, exactly.
+Not just the language. I had that down quite fast. It was everything underneath. A show they'd all seen as six-year-olds I'd never watched. The traditions or boisterous energy I didn't grow up with and couldn't replicate. The specific way they teased each other I could never quite match. I'd either take it too seriously or laugh a second too late, and either way it marked me as someone translating everything in real time.
 
-Like I'd shown up to a conversation that had started without me and would keep going long after, and no one had done anything wrong by not waiting.
+It wasn't anyone's fault. Cliques don't wait. They'd already sorted themselves into little islands with their own laws long before I got off the boat, and every year I spent trying to learn the customs was a year they spent building the next layer of history I hadn't been there for.
 
-So I got used to being on my own. Just because, somewhere along the way, you make do with the silence. And after, I never learned what else was supposed to go in its place.
+There'd been a few hands reaching across the water, if I'm honest. A kid in fourth grade who saved me a seat. Someone on a group project who texted me twice outside of class before the thread went quiet.
+
+I wanted it. I’d be lying if I said otherwise. I wanted the seat saved, the texts. But wanting something and knowing what to do with it are two separate things, and I never developed the second. I'd freeze up mid-conversation, unsure which version of myself was allowed to show up - after all the one from home certainly wasn't suitable - and by the time I decided, the moment had passed. I gave short answers when I meant to give long ones. And people just found it easier forming different friendships.
+
+Eventually the invitations stopped coming. You knock at a house with the lights on, nobody answers, and eventually you stop knocking. 
+
+It never felt like rejection, exactly. Like I'd shown up to a conversation that had started without me and would keep going long after, and no one had done anything wrong by not waiting.
+
+So I got used to being on my own. Somewhere along the way, you make do with the silence. I never learned what else was supposed to go in its place.
 
 ◇
 
@@ -172,7 +172,7 @@ Of course I paid it no mind at the time. Alcohol stretched my father's worthless
 
 If I disappeared on the walk home today, if I simply stepped off the edge of the abandoned bridge and into the grey, rushing river below, what would change in the grand ledger of the world?
 
-The teacher would have to fill out a brief incident report. My parents would lose the quiet, dull disappointment that sat in the back of their minds. The school might hire a counselor for three days to talk about "student wellness," and thirty-one teenagers would get a free period to sit in silence and pretend they remembered my voice. Oh, and the store manager would lose a clerk and some future business.
+ My parents would lose the quiet, dull disappointment that sat in the back of their minds. The school might not even notice, and just think it was a simple disappearance. Otherwise, they might hire a counselor for three days to talk about "student wellness," and thirty-one teenagers would get a free period to sit in silence and pretend they remembered my voice. Oh, and the store manager would lose a clerk and some future business.
 
 A net gain, perhaps. Though I didn't like how my life seemed to be mixed in with more than before.
 

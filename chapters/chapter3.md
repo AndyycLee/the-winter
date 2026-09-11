@@ -4,7 +4,7 @@ An oversized jacket. An unlit cigarette. One eye under a hood. A voice through f
 
 Then paused. The hood was bangs. The snow was only light, morning light, ordinary and undramatic, falling through.
 
-Her smile was faint and uncertain, the kind worn by people who apologize just for existing. She stood just inside the doorway, looking around while the room rearranged itself around her.
+She stood just inside the doorway, looking around while the room rearranged itself around her. Her nervous smile like those worn by people who apologize just for existing. 
 
 Wide, upturned, eyes peeking out from under her bangs, a shade of aquamarine that looked lit from within. There was a candid, curious charm to them, the kind that made you want to follow the light back to its source. Yet they gave nothing away. Paired with her shyness, it made her intimidatingly magnetic.
 

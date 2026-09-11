@@ -4,7 +4,7 @@ November had completed its slow, quiet violence. The last stubborn leaves on the
 
 Like usual I found my way to the bench. The wood dark and slick, and my jeans soaked through almost immediately, but I didn't move.
 
-The wood tilted slightly. And I let the damp air fill my lungs.
+The wood tilted slightly. Or my attention shifted. I wasn't sure which, and I let the damp air fill my lungs.
 
 Maybe it was because I was dwelling on philosophy for so long that another idea came to me. In the language I left behind, there is a word for the threads that pull people together across time and space: In-yeon.
 
