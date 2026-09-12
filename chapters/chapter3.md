@@ -4,9 +4,9 @@ An oversized jacket. An unlit cigarette. One eye under a hood. A voice through f
 
 Then paused. The hood was bangs. The snow was only light, morning light, ordinary and undramatic, falling through.
 
-She stood just inside the doorway, looking around while the room rearranged itself around her. Her nervous smile like those worn by people who apologize just for existing. 
+She stood just inside the doorway, looking around while the room rearranged itself around her. Her smile was the nervous kind worn by people who apologize just for existing. 
 
-Wide, upturned, eyes peeking out from under her bangs, a shade of aquamarine that looked lit from within. There was a candid, curious charm to them, the kind that made you want to follow the light back to its source. Yet they gave nothing away. Paired with her shyness, it made her intimidatingly magnetic.
+Wide, upturned eyes peeking out from under her bangs, a shade of aquamarine that looked lit from within. There was a candid, curious charm to them, the kind that made you want to follow the light back to its source. Yet they gave nothing away. Paired with her shyness, it made her intimidatingly magnetic.
 
 I couldn't trust if my memories were overlapping, but my second take was winning. She seemed like an entirely different person.
 
@@ -16,7 +16,7 @@ _They looked for one till years were done._
 
 Still, my thoughts started to race. Would she even recognize me? Did she remember any of it: the library, me? But deeper than that, a question I couldn't push down. The bus. The bench. The cold.
 
-Then the room moved in around her, the way rooms always seemed to move around people who belonged in them. Names called out. A chair scraped over. Someone already asking her something and laughing before she'd even finished answering. She was folded into it almost instantly, swallowed into the current the way a stone disappears the moment it breaks the surface, and I sat there four meters away, watching people who weren't me close a distance I hadn't even managed to attempt.
+Then the room moved in around her. A chair scraped over. Someone asking her something and laughing before she'd even finished answering. She was folded into it almost instantly, and I sat there four meters away, watching people who weren't me close a distance I hadn't even managed to attempt.
 
 _Then stood right there and told no one._
 
@@ -48,7 +48,7 @@ Just rough wood, and the shape the snow makes when nothing has sat in it for a l
 
 ◇
 
-I told myself I'd talk to her tomorrow. "Tomorrow" was the the safest word in my vocabulary — infinitely renewable, never actually due.
+I told myself I'd talk to her tomorrow. "Tomorrow" was the safest word in my vocabulary. Infinitely renewable. Never actually due.
 
 I'll be honest. What I did next was probably overreaching.
 

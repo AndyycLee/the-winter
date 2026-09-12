@@ -1,22 +1,22 @@
 ## One
 
-November had completed its slow, quiet violence. The last stubborn leaves on the banks had given up their hold, leaving the trees naked, their branches reaching into the low, dark purple-bruised sky like exposed veins.
+November had completed its slow, quiet violence. The last stubborn leaves on the banks had given up their hold, their branches reaching into the low, dark purple-bruised sky like exposed veins.
 
 Like usual I found my way to the bench. The wood dark and slick, and my jeans soaked through almost immediately, but I didn't move.
 
 The wood tilted slightly. Or my attention shifted. I wasn't sure which, and I let the damp air fill my lungs.
 
-Maybe it was because I was dwelling on philosophy for so long that another idea came to me. In the language I left behind, there is a word for the threads that pull people together across time and space: In-yeon.
+Maybe it was because I'd been dwelling on philosophy for so long that another idea came to me. In the language I left behind, there is a word for the threads that pull people together across time and space: In-yeon.
 
-Destiny. Fate. It was a romantic notion, the kind of comfortable superstition designed to make lovers feel re-assured in their choices (I'm sure my dad won over my mom with this).
+Destiny. Fate. It was a romantic notion, the kind of comfortable superstition designed to make lovers feel reassured in their choices (I'm sure my dad won over my mom with this).
 
-Still, the condition wasn't limited to lovers. It was a way of making an overwhelmingly vast universe feel smaller, deliberate. They say that two strangers whose clothes brush against each other on a crowded street corner must have shared thousands of layers of in-yeon in their past lives.
+Still, the condition wasn't limited to lovers. It was a way of making an overwhelmingly vast universe feel smaller, more deliberate. They say that two strangers whose clothes brush against each other on a crowded street corner must have shared thousands of layers of in-yeon in their past lives.
 
-More than that, they say to actually find this person, you have to keep your eye on the invisible thread, to take each moment with intentionality. So when the universe finally opens the right door, you step through it with courage. And if you don't, if you let the moment pass, then the thread will snap, and you'll miss the moment of meeting them in this lifetime.
+More than that, they say to actually find this person, you have to keep your eye on the invisible thread, to take each moment with intentionality. So when the universe finally opens the right door, you step through it with courage. And if you don't, if you let the moment pass, then the thread will snap, and you'll miss meeting them in this lifetime.
 
 I'll admit it. I'm reliant on other people I deem "strangers". But still, the concept felt like an elaborate joke.
 
-If it took eight thousand lives of shared history just to bump shoulders with a passerby, then how many cosmic failures did it take to end up like this? How many lifetimes had I spent turning away, burning bridges, or simply failing to exist, to end up in a place where every thread had snapped?
+If it took a thousand lives of shared history just to bump shoulders with a passerby, then how many cosmic failures did it take to end up like this? How many lifetimes had I spent turning away, burning bridges, or simply failing to exist, to end up in a place where every thread had snapped?
 
 I closed my eyes, listening to the monotonous drip-drip of the span.
 
@@ -44,9 +44,9 @@ There was a wetness in my eyes I knew wasn't sweat. Pulling on my jacket - I nee
 
 The view I spied from the bridge was nearly identical to the one I had imagined. The water was still dirty blue-grey, but it was slowly moving, and the snow was falling violently faster in a way that made it look like the world was being washed clean.
 
-As I took one step closer to the edge, looking straight down into the murky current, a sudden, violent cold seized my chest.
+As I took one step closer to the edge, looking straight down into the murky current, a sudden, piercing cold punctured my chest.
 
-Fear. I hadn’t felt it here before, but standing on the precipice, I realized it was entirely mine. I just stood there on the slick concrete of the bridge, my hands gripping the cold railing. Heavy and terrifying, my wet hair and my shaking legs belonged to me.
+Fear. I hadn’t felt it here before, but standing on the precipice, I realized it was entirely mine. I just stood there on the slick concrete of the bridge, my hands gripping the cold railing. My wet hair and my shaking legs were terrifying, and they belonged to me.
 
 And to confess it fully to the silent, falling snow. I had a quiet hope.
 
@@ -60,13 +60,13 @@ Turning around was a strange sight.
 
 The bench was empty, except it wasn’t. A girl sat near the far end.
 
-She was huddled beneath an oversized black jacket that swallowed her frame. A single wired earbud dangled from her left ear; the other remained in. The cigarette between her knuckles was unlit. Snow settling in her long, dark hair spilling over her shoulder. She watched me with careful, stillness — one blue eye glinting beneath the hood.
+She was huddled beneath an oversized black jacket that swallowed her frame. A single wired earbud dangled from her left ear; the other remained in. The cigarette between her knuckles was unlit. Snow settled in her long, dark hair where it spilled over her shoulder. Watching me with careful stillness — one blue eye glinting beneath the hood.
 
-I stepped forward a few paces. Considering ignoring her and the vulnerable, embarrassing moment she witnessed.
+I stepped forward a few paces. Considering whether to ignore her and the vulnerable, embarrassing moment she witnessed.
 
 "What were you doing?" she asked, her voice distant.
 
-\*The rising dawn reflected off the fresh snow, a gentle light. The bus's smooth hum braided with the river's murmur, and the howling wind defeaned my ears.\*
+\*The rising dawn reflected off the fresh snow, a gentle light. The bus's smooth hum braided with the river's murmur, and the howling wind deafened my ears.\*
 
 I didn't flinch. For some reason, that cosmic plea gave me a strange courage. "...Staring".
 
@@ -76,9 +76,9 @@ Facing her.
 
 She tilted her head. "Huh." The cigarette made a soft tap, then she slid the earbud back in and turned toward the line of trees, as if whatever had passed between us had closed.
 
-I stepped a few paces and sat down.
+I took a few steps and sat down.
 
-I knew my quiet sanctuary had been found, but maybe in my fear-dream addled brain sitting next to a random person was a comfort.
+I knew my quiet sanctuary had been found, but maybe, to my fear-dream addled brain sitting next to a random person was a comfort.
 
 Sitting there on the edge of the dark, listening to the muffled rhythm of a stranger's song in the falling snow.
 
@@ -118,9 +118,9 @@ The bus driver was watching me in the big mirror above his seat, one eyebrow rai
 
 I looked down at myself. My house jacket, hanging open over the shirt I'd slept in, the collar still damp.
 
-I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. Which told me nothing. Dreams had hurt before, I just had one that had me up at 4:57 that morning...
+I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. Which told me nothing. Dreams had hurt before; I'd just had one ending at 4:57 that morning...
 
-I scuffled my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap. Still, I was glad for it, the sobering wind cooled my head.
+I scuffed my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap. Despite that, I was glad for it; the sobering wind cooled my head.
 
 I remembered the tangled sheets, the clock reading some ungodly hour, gripping a frozen railing, the raging snow, and sitting next to her...
 
@@ -132,9 +132,9 @@ I had half a mind to ask the bus driver if I was dreaming, but I didn't. That se
 
 Almost as an answer to my own question, the second period had a second surprise.
 
-"Today we'll be doing something a bit different", Mr. Holt's voice was calm, but it carried a boom that made the room quiet. "We'll be looking at a poem, I want you to write what it makes you feel, and you'll turn that in at the end of class. I want you to be honest. Don't worry about what anyone else thinks, just write what comes to mind."
+"Today we'll be doing something a bit different." Mr. Holt's voice was calm, but it carried a boom that made the room quiet. "We'll be looking at a poem, I want you to write what it makes you feel, and you'll turn that in at the end of class. I want you to be honest. Don't worry about what anyone else thinks, just write what comes to mind."
 
-On the chalkboard he scrawled the title of the poem in his neat, looping handwriting: "Mimories".
+On the chalkboard he inscribed the title of the poem in his neat, looping handwriting: "Mimories".
 
 _She made him up._
 
@@ -170,13 +170,13 @@ _They looked for one till years were done._
 
 Something ugly and immediate rose up in me, and before I'd decided to, I was writing.
 
-I didn't write about the poem. Not really. I wrote about the useless, humiliating shape of hope. How it kept building itself back up overnight no matter how many mornings I tore it down, like some stubborn weed growing through concrete out of spite. I wrote about waiting for a voice that never came and hating myself for waiting anyway. I wrote, in handwriting that got worse the angrier I got, that maybe two people standing right there and saying nothing wasn't some tragic accident. Maybe it was just the natural order of things. Maybe the universe wasn't cruel enough to arrange in-yeon across a thousand lifetimes just to snatch it away at the very last second — it simply was indifferent, and everyone who believed otherwise was just doing the exact same thing I was doing, filling silence with meaning because silence was unbearable otherwise.
+I didn't write about the poem. Not really. I wrote about the useless, humiliating shape of hope. How it kept building itself back up overnight no matter how many mornings I tore it down. I wrote about waiting for a voice that never came and hating myself for waiting anyway. I wrote, in handwriting that got worse the angrier I got, that maybe two people standing right there and saying nothing wasn't some tragic accident. Maybe it was just the natural order of things. Maybe the universe wasn't cruel enough to arrange in-yeon across a thousand lifetimes just to snatch it away at the very last second. It simply was indifferent, and everyone who believed otherwise was just doing the exact same thing I was doing, filling silence with meaning because silence was unbearable otherwise.
 
 My pencil tip snapped clean off on the last line. I didn't notice until I went to press down anyway and nothing came.
 
 I sat there breathing a little too hard, staring at a paragraph I hadn't meant to write, in a classroom that suddenly felt too bright, too normal, entirely unaware of what had just happened a meter above the linoleum.
 
-There was a tinge of embarrassment in me, but it was a quiet thing. A thought crossed my mind that perhaps I was losing my grip on the world entirely, spinning a fragile delusion out of lonely desperation. Yet, even if this sequence right now was a dream, there was a strange, poetic comfort in choosing to commit a completely meaningless act on purpose.
+There was a tinge of embarrassment in me, but it was a quiet thing. A thought crossed my mind that perhaps I was losing my grip on the world entirely, spinning a fragile delusion out of lonely desperation. Yet even if this sequence right now was a dream, there was a strange, poetic comfort in choosing to commit a completely meaningless act on purpose.
 
 The bell rang not long after. Chairs scraped, voices rose back to their normal volume, and the room exhaled the particular tension a poem like that leaves behind once everyone's allowed to stop pretending they felt something.
 
@@ -186,7 +186,7 @@ The room didn't fully quiet, but enough of it did.
 
 "You'll also have a new transfer student joining the class."
 
-I don't know why those words landed the way they did. It was such an ordinary sentence. Schools got new students all the time. But something in the room shifted anyway, a kind of held-breath quality settling over the fluorescent light and the snow-streaked windows, like the whole classroom had quietly become the inside of something else. A snowglobe. A spell not yet broken.
+I don't know why those words landed the way they did. It was such an ordinary sentence. Schools got new students all the time. But something in the room shifted anyway, a kind of held-breath quality settling over the fluorescent light and the snow-streaked windows, like the whole classroom had quietly become the inside of a snowglobe. A spell not yet broken.
 
 I still couldn't tell, sitting there, whether I was awake. It didn't feel like it mattered anymore whether I could prove it either way — if this was a dream, then everything about this morning had already broken the rules. But if that was true, then walking through the door right now shouldn't have felt like anything at all.
 

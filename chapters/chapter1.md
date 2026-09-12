@@ -6,7 +6,7 @@ I fell in love with a girl who doesn't exist. Sounds absurd, right? But she was 
 
 That winter, I began to have a recurring dream.
 
-I’ve never put an importance on dreams. Random noise, forgotten the second your eyes open. But lately, every time I close my eyes, I find myself back on that crowded bus.
+I’ve never put any importance on dreams. Random noise, forgotten the second your eyes open. But lately, every time I close my eyes, I find myself back on that crowded bus.
 
 The air inside is always dense. It’s packed with people, but I can't make out their faces. As if the sequence surfacing in my mind is meant for someone else.
 
@@ -22,7 +22,7 @@ The air inside is always dense. It’s packed with people, but I can't make out 
 
 *I reach out and take her hand. It’s ice, the only sensation I can feel. But the longer I hold on, the more the edges of my vision fray. The glass, the schoolyard, the sky—it all bleeds away*
 
-It feels better than waking up, but I always wake up anyway. Not just because everything is vanishing to remind me I’m dreaming, but because deep down I know the longer I hold on, the longer a painful hope grows.
+It feels better than waking up, but I always wake up anyway. Not just because everything is vanishing, but because deep down I know the longer I hold on, the more a painful hope grows.
 
 So the dream snaps, as it always does, abandoning me to the sudden, heavy quiet of my room. Nothing like that color at all.
 
@@ -30,15 +30,15 @@ So the dream snaps, as it always does, abandoning me to the sudden, heavy quiet 
 
 Aside from that, I don’t really have anything you could call routine. Ours was a strange family.
 
-We immigrated from Korea but my dad moved back when I turned 15. Rather than uprooting me for my final years of school, he left me the shoebox walk-up apartment, set up an allowance, and told me to be smart. My mom also lives in Korea, but I last saw her a decade ago. She was a model; they separated when I was young, and truthfully I don’t care about making any new mother-son memories (or father-son for that matter). It puzzled me why people like this have children, it seemed like I was a stand-in (or accident I suppose) in the natural progression of their goals. But once it happened, they both forgot. If there’s one blessing about this it seemed like we weren’t hurting for money. I’ve lived alone ever since.
+We immigrated from Korea but my dad moved back when I turned 15. Rather than uprooting me for my final years of school, he left me the shoebox walk-up apartment, set up an allowance, and told me to be smart. My mom also lives in Korea, but I last saw her a decade ago. She was a model; they separated when I was young, and truthfully I don’t care about making any new mother-son memories (or father-son for that matter). It puzzled me why people like this have children, it seemed like I was a stand-in (or accident I suppose) in the natural progression of their goals. But once it happened, they both forgot. If there was one blessing in this, it seemed like we weren’t hurting for money. I’ve lived alone ever since.
 
-It was around this time, while trying to fill my empty days with a new routine that I developed a new hobby. I like to stare from high places. Well that’s a half-truth.
+It was around this time, while trying to fill my empty days with a new routine, that I developed a new hobby. I like to stare from high places. Well, that’s a half-truth.
 
-They have a name for it online — the call of the void. Some intrusive urge telling you to jump, apparently. I don't know about that. I just enjoyed how small it made my life feel. Standing on the ledge, watching people the size of ants scurry between concrete blocks, I felt a strange kind of comfort. If I stepped off, the world would just keep spinning. It wasn't that I actually wanted to; it was I *could*. When I think about how ridiculous it sounds, things like the emptiness of my life stop bothering me.
+They have a name for it online — the call of the void. Some intrusive urge telling you to jump, apparently. I don't know about that. I just enjoyed how small it made my life feel. Standing on the ledge, watching people the size of ants scurry between concrete blocks. If I stepped off, the world would just keep spinning. It wasn't that I actually wanted to; it was I *could*. When I think about how ridiculous it sounds, things like the emptiness of my life didn't seem so heavy.
 
-My favourite spot was an abandoned concrete bridge overlooking water. The area was understandably shielded off with bushes and fences. It was on one of my aimless walks that I found it. A clearing in the bushes and from there following the fences led to a weakened patch anyone could easily peel up and duck under.
+My favourite spot was an abandoned concrete bridge overlooking water. The area was understandably shielded off with bushes and fences. It was on one of my aimless walks that I found it. There was a clearing in the bushes, and from there, following the fences led to a weakened patch anyone could easily peel up and duck under.
 
-It was a quiet spot I frequented often. In winter, the frozen river, the crunchy snow, a worn-out wooden bench, and gray-concrete of that bridge was the perfect place for my empty thoughts.
+It was a quiet spot I frequented. In winter, the ice-fringed river, drifting snow, a worn-out wooden bench, and gray-concrete of that bridge was the perfect place for my empty thoughts.
 
 It was also the place I first met her.
 
@@ -58,7 +58,7 @@ I shrugged. "Yeah, not far."
 
 He stared at me curiously. "I was thinking about hiring someone. You want the job?"
 
-It was a mindless thing that I picked up on a whim. Maybe it was something about the familiarity of the store that drew me in, after all I didn’t share that same consistency with school. My grades were good enough to pass despite my broken attendance, and it seemed the school didn't care much about that either. I was a ghost in the system, and it suited me too.
+It was a mindless thing that I picked up on a whim. Maybe it was something about the familiarity of the store that drew me in; after all I didn’t share that same consistency with school. My grades were good enough to pass despite my broken attendance, and it seemed the school didn't care much about that either. I was a ghost in the system, and it suited me too.
 
 I liked that job. It was quiet. I liked the way strangers seemed to carry their own colors of life, and I could observe them without needing to participate. 
 
@@ -92,7 +92,7 @@ School started back up not long after. I hadn't thought about it much over the s
 
 One of my earliest memories at school was the reading log. A grid of the month printed on cheap paper, a column for minutes, a line at the bottom for a parent to sign, and at the end of it the teacher would tally everyone's hours and read the totals out. I decided I would read three hours a day. If twenty minutes earned a baseline score, three hours represented a massive surplus. I assumed the teacher operated on a pure merit system and that accumulating the most would secure her approval, establishing my place at the top of the classroom hierarchy.
 
-And I did it. You don't need to believe me, but it's true. We didn't own many English books, so I reread the same ones until my eyes glazed over the words from boredom. I sat at the kitchen table while my dad drank, turned the pages on schedule, watched the clock above the stove, and felt, underneath all that monotony, enormously good about myself.
+And I did it. You don't need to believe me, but it's true. We didn't own many English books, so I reread the same ones until my eyes glazed over from boredom. I sat at the kitchen table while my dad drank, turned the pages on schedule, watched the clock above the stove, and felt, underneath all that monotony, enormously good about myself.
 
 At the end of the month she held my sheet up and asked, in front of everyone, whether I was sure about my numbers. Three hours. Every single day. She said it lightly. "You shouldn't forge your parent's initials just to make yourself look special". Only she was wrong. Though there's no way to say that out loud at that age without sounding like you're lying a second time.
 
@@ -102,7 +102,7 @@ It wasn't that I had no chances for friends. I want to be clear about that, if o
 
 I'd moved here young enough that I should've had every chance most kids get - a clean slate, an English-sounding name no one had decided anything about yet. But somewhere between the moving boxes and my first week of class, I realized I was speaking a half-beat behind everyone else.
 
-Not just the language. I had that down quite fast. It was everything underneath. A show they'd all seen as six-year-olds I'd never watched. The traditions or boisterous energy I didn't grow up with and couldn't replicate. The specific way they teased each other I could never quite match. I'd either take it too seriously or laugh a second too late, and either way it marked me as someone translating everything in real time.
+Not just the language. I had that down quite fast. It was everything underneath. A show they'd all watched at six and I'd never seen. The traditions or boisterous energy I didn't grow up with and couldn't replicate. The specific way they teased each other I could never quite match. I'd either take it too seriously or laugh a second too late, and either way it marked me as someone translating everything in real time.
 
 It wasn't anyone's fault. Cliques don't wait. They'd already sorted themselves into little islands with their own laws long before I got off the boat, and every year I spent trying to learn the customs was a year they spent building the next layer of history I hadn't been there for.
 
@@ -122,7 +122,7 @@ So I got used to being on my own. Somewhere along the way, you make do with the 
 
 Deontology. Utilitarianism. In crisp, white characters scribbled across the blackboard.
 
-I'd been drifting. Two periods of doing nothing, staring out windows. But I didn't mind his class, for someone who drifted through life, it was curious that he was making me think. The sound of the chalk dragging across the backboard had been a distant hum, and I was just about to let my mind wander completely when Mr. Holt’s voice cut through the haze.
+I'd been drifting. Two periods of doing nothing, staring out windows. But I didn't mind his class; for someone who drifted through life, it was curious that he was making me think. The sound of the chalk dragging across the blackboard had been a distant hum, and I was just about to let my mind wander completely when Mr. Holt’s voice cut through the haze.
 
 "Alright, let's hear from someone who hasn't talked yet today." He scanned the rows, not lingering on anyone in particular, like he was picking a card at random.
 
@@ -164,17 +164,17 @@ The greatest good for the greatest number.
 
 If you are a net zero. If your presence neither adds joy nor subtracts misery from the world. Then in the eyes of a utilitarian, you aren't even part of the world. You don't exist.
 
-It had always been my strange comfort. I could drift through life without leaving a mark, and exit it when I wanted without anyone noticing. But, I noticed that the same feeling gained a hollow weight.
+It had always been my strange comfort. I could drift through life without leaving a mark, and exit it when I wanted without anyone noticing. But, I noticed that the same feeling gaining hollow weight.
 
-Back in Korea, my dad taught me a philosophy. Bumo-eum. A deep indebtedness owed to one's parents. But he translated it to me as a debt owed to the world. He said that every child was born with a specific debt to the world, and that growing up was simply the long, slow process of paying it back through work, through love, through memory.
+Back in Korea, my dad taught me a philosophy. Bumo-eun. A deep indebtedness owed to one's parents. But he translated it to me as a debt owed to the world. He said that every child was born with a specific debt to the world, and that growing up was simply the long, slow process of paying it back through work, through love, through memory.
 
-Of course I paid it no mind at the time. Alcohol stretched my father's worthless stories to infinity. He clearly didn't care about me. And me him. But now, I considered it. Every person I've met so far has been a stranger, so I think I owed them no debt. But what about the people I had never met? The people who would never know me, and yet would be affected by my actions, or inactions? Did I owe them something too?
+Of course I paid it no mind at the time. Alcohol stretched my father's worthless stories to infinity. He clearly didn't care about me. And me him. But now, I considered it. Every person I've met so far has been a stranger, so I think I owe them no debt. But what about the people I had never met? The people who would never know me, and yet would be affected by my actions, or inactions? Did I owe them something too?
 
 If I disappeared on the walk home today, if I simply stepped off the edge of the abandoned bridge and into the grey, rushing river below, what would change in the grand ledger of the world?
 
  My parents would lose the quiet, dull disappointment that sat in the back of their minds. The school might not even notice, and just think it was a simple disappearance. Otherwise, they might hire a counselor for three days to talk about "student wellness," and thirty-one teenagers would get a free period to sit in silence and pretend they remembered my voice. Oh, and the store manager would lose a clerk and some future business.
 
-A net gain, perhaps. Though I didn't like how my life seemed to be mixed in with more than before.
+A net gain, perhaps. Though I didn't like how my life seemed to be more mixed in with than before.
 
 Under a deontological view, my life had inherent worth simply because it was a human life. It was a rule, rigid and unyielding. You do not destroy a soul, because destroying a soul is inherently wrong. But that felt like a technicality.
 
