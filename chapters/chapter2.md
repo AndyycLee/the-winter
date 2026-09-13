@@ -34,7 +34,7 @@ The cold came first. Then the dark. Then nothing.
 
 —
 
-Gasping. A shirt stuck to my chest. Sweat pouring across my face. My heart was moving fast. And my sheets were tangled around my legs like something that had been trying to hold me down.
+Gasping. A shirt stuck. Sweat pouring. My heart was moving fast. And sheets were tangled around my legs as if trying to hold me down.
 
 The apartment. My bed. 4:57 AM according to the clock on the wall.
 
