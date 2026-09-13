@@ -20,7 +20,7 @@ If it took a thousand lives of shared history just to bump shoulders with a pass
 
 I closed my eyes, listening to the monotonous drip-drip of the span.
 
-And then I stood up. My legs were stiff from sitting, and the cold had worked into my joints. I walked toward the bridge, my shoes leaving crunchy imprints on the snowed path. The concrete was slick, and I moved carefully at first, then less carefully.
+And then I stood up. My legs were stiff from sitting, and the cold had worked into my joints. Walking toward the bridge, my shoes left crunchy imprints on the snowed path. The concrete was slick, and I moved carefully at first, then less carefully.
 
 The crossing had a weathered metal railing, rust blooming in places. I kept one hand on it as I walked. I liked the piercingly cold texture, and snow gently fell in crisp flakes.
 
