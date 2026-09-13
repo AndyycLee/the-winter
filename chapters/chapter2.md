@@ -34,25 +34,25 @@ The cold came first. Then the dark. Then nothing.
 
 —
 
-I woke gasping, my shirt stuck to my chest, sweat running down the side of my face. My heart was moving fast. And my sheets were tangled around my legs like something that had been trying to hold me down.
+Gasping. A shirt stuck to my chest. Sweat pouring across my face. My heart was moving fast. And my sheets were tangled around my legs like something that had been trying to hold me down.
 
 The apartment. My bed. 4:57 AM according to the clock on the wall.
 
-I was still shaking. I closed my eyes to steel myself, but I couldn't stop my skin from tingling and visions replaying. I thought I‘d understood myself, but this was proof. \*Zero\* wasn’t enough. I pushed the sheets away and sat up, feeling the cold air hit my skin and stick there.
+Shaking. I tried closing my eyes. But the tingling on my skin wouldn't fade and the visions kept replaying. I‘d understood myself? No. \*Zero\* wasn’t enough. Pushing the sheets away and sitting up, the cold air hit my skin and stuck.
 
-There was a wetness in my eyes I knew wasn't sweat. Pulling on my jacket - I needed to verify my philosophy.
+There was a wetness in my eyes I knew wasn't sweat. Pulling on my jacket - I \*must\* verify my philosophy.
 
-The view I spied from the bridge was nearly identical to the one I had imagined. The water was still dirty blue-grey, but it was slowly moving, and the snow was falling violently faster in a way that made it look like the world was being washed clean.
+The view I spied of the bridge was nearly identical to the one I'd imagined. The water was still dirty blue-grey, but it was slowly moving, and the snow was falling violently faster in a way that made it look like the world was being washed clean.
 
-As I took one step closer to the edge, looking straight down into the murky current, a sudden, piercing cold punctured my chest.
+As I took one step closer to the edge, looking straight down into the murky current, a sudden, piercing cold seized my chest.
 
-Fear. I hadn’t felt it here before, but standing on the precipice, I realized it was entirely mine. I just stood there on the slick concrete of the bridge, my hands gripping the cold railing. My wet hair and my shaking legs were terrifying, and they belonged to me.
+Fear. I hadn’t felt it here before, but standing on the precipice, it was entirely mine. Standing on the slick concrete of the bridge, my hands gripping the cold railing. My wet hair and my shaking legs were terrifying, and they belonged to me.
 
 And to confess it fully to the silent, falling snow. I had a quiet hope.
 
-I wish, quietly and uselessly, that my life hadn't been a rounding error. That there'd been a cosmic mistake, that the world wouldn't keep spinning without me.
+I wish, vainly and pleading, that my life hadn't been a rounding error. That there'd been a cosmic mistake, that the world wouldn't keep spinning without me.
 
-More than that, I'm reliant on the random dreams of a girl I haven't even met. I don't even know if she exists, but I keep hoping that she does. And it was a ridiculous plea, I knew for someone like me it was more than I could hope for. To begin with, they would have to have met me in that darkness, stayed there, and then led me out.
+More than that, I'm reliant on the random dreams of a girl I haven't even met. I don't even know if she exists, but I keep hoping. And it was a ridiculous plea, I knew for someone like me it was more than I could hope for. To begin with, they would have to have met me in that darkness, stayed there, and then led me out.
 
 My hands were frozen. The whiteout snow swarmed my vision.
 
@@ -62,9 +62,9 @@ The bench was empty, except it wasn’t. A girl sat near the far end.
 
 She was huddled beneath an oversized black jacket that swallowed her frame. A single wired earbud dangled from her left ear; the other remained in. The cigarette between her knuckles was unlit. Snow settled in her long, dark hair where it spilled over her shoulder. Watching me with careful stillness — one blue eye glinting beneath the hood.
 
-I stepped forward a few paces. Considering whether to ignore her and the vulnerable, embarrassing moment she witnessed.
+I stepped forward a few paces. Considering whether to ignore her and the vulnerable moment she witnessed.
 
-"What were you doing?" she asked, her voice distant.
+"What were you doing?", her voice distant.
 
 \*The rising dawn reflected off the fresh snow, a gentle light. The bus's smooth hum braided with the river's murmur, and the howling wind deafened my ears.\*
 
