@@ -46,7 +46,7 @@ The view I spied of the bridge was nearly identical to the one I'd imagined. The
 
 As I took one step closer to the edge, looking straight down into the murky current, a sudden, piercing cold seized my chest.
 
-Fear. I hadn’t felt it here before, but standing on the precipice, it was entirely mine. Standing on the slick concrete of the bridge, my hands gripping the cold railing. My wet hair and my shaking legs were terrifying, and they belonged to me.
+Fear. I hadn’t felt it here before, but standing on the precipice, it was entirely mine. Standing on the slick concrete of the bridge, hands gripping the icy railing. My wet hair and my shaking legs were terrifying, and they belonged to me.
 
 And to confess it fully to the silent, falling snow. I had a quiet hope.
 
