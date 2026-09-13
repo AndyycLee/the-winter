@@ -90,11 +90,11 @@ I was already moving.
 
 The bus.
 
-I knew this route by now. Twenty times, easily, maybe more. I'd stopped counting somewhere in October. My eyes felt heavy, sleep still clinging to the edges, and I let them fall shut, trusting my body to carry the rest.
+The route was familiar now. Twenty times, easily, maybe more. I'd stopped counting somewhere in October. My eyes felt heavy, sleep still clinging to the edges, and I let them fall shut, trusting my body to carry the rest.
 
-The first turn came, winding and downward, into the valley. My stomach dipped a half-second before it did.
+The first turn came, winding and downward, into the valley. Leaning backwards a half-second before it did.
 
-Straight through the valley floor. Second turn, upward, to the right — my body leaned into it before it happened, already knowing the angle by heart.
+Straight through the valley floor. Second turn, upward, to the right. My body leaning into it, already knowing the angle by heart.
 
 Somewhere in there the road turned uneven for a stretch, gravel under the tires, my shoulder knocking lightly against the window frame. It passed as quickly as it came.
 
@@ -116,13 +116,13 @@ I laughed inside, dry and humorless. Even my own subconscious was getting lazy.
 
 The bus driver was watching me in the big mirror above his seat, one eyebrow raised, the door still hanging open as a small queue of kids streamed out.
 
-I looked down at myself. My house jacket, hanging open over the shirt I'd slept in, the collar still damp.
+Glancing down. My house jacket, hanging open over the shirt I'd slept in, the collar still damp.
 
-I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. Which told me nothing. Dreams had hurt before; I'd just had one ending at 4:57 that morning...
+I pinched the skin at my wrist, hard, harder than I needed to, as if it would settle the question. It hurt exactly as much as it should have. Dreams had hurt before; I'd just had one ending at 4:57 that morning...
 
-I scuffed my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap. Despite that, I was glad for it; the sobering wind cooled my head.
+My shoes scuffed stepping off the bus, as the doors closed behind me. The cold hit my face like a slap. Despite that, I was glad for it; the sobering wind cooled my head.
 
-I remembered the tangled sheets, the clock reading some ungodly hour, gripping a frozen railing, the raging snow, and sitting next to her...
+Tangled sheets, the clock reading some ungodly hour, gripping a frozen railing, the raging snow, and sitting next to her...
 
 Six words. That was all of it. I'd sat down and let her put the earbud back in, and I hadn't asked her name, or what she was doing out there at that hour, or whether she'd be there tomorrow. 10 centimeters of space between us and I let it be.
 
