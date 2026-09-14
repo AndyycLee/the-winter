@@ -34,7 +34,7 @@ The cold came first. Then the dark. Then nothing.
 
 —
 
-I woke gasping, my shirt stuck to my chest, sweat running down the side of my face. My heart was moving fast. And my sheets were tangled around my legs like something that had been trying to hold me down.
+I woke gasping, my shirt plastered in sweat. My heart hammering. And sheets were tangled around my legs like something that had been trying to hold me down.
 
 The apartment. My bed. 4:57 AM according to the clock on the wall.
 
