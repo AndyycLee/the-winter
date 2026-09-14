@@ -120,7 +120,7 @@ I looked down at myself. My house jacket, hanging open over the shirt I'd slept 
 
 I pinched the skin at my wrist, hard, harder than I needed to, like it would prove something either way. It hurt exactly as much as it should have. Which told me nothing. Dreams had hurt before; I'd just had one ending at 4:57 that morning...
 
-I scuffed my shoes up quickly, and stepped off the bus, letting the doors close behind me. The cold hit my face like a slap. Despite that, I was glad for it; the sobering wind cooled my head.
+I scuffed off the bus as the doors closed behind me. The cold hitting my face like a slap. I was glad for it. The wind cleared my head.
 
 I remembered the tangled sheets, the clock reading some ungodly hour, gripping a frozen railing, the raging snow, and sitting next to her...
 
